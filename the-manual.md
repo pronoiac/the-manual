@@ -535,7 +535,7 @@ They might believe they are.
 Their public are encouraged to believe they are.
 All that is happening is that the new young, waving fields of corn are allowed to grow full and ripe before a very strange combined harvester will come along and pick the few lucky ears of corn while the rest of the field cheer, whither and die.
 A new harvest is always needed.
-1988 saw the latest wou~d-be revolution happen in pop music.
+1988 saw the latest would-be revolution happen in pop music.
 
 The DJ, with his pair of Technics and box of records can make it to the top with a little help from a sample machine, squiggly bass line and beat box.
 Yet again this was interpreted as the masses finally liberating the means of making music from all the undesirables and now terminally unhip.
@@ -805,7 +805,7 @@ The chorus is the bit in the song that you can't help but sing along with.
 It is the most important element in a hit single because it is the part that most people carry around with them in their head, when there is no radio to be heard, no video on TV. and they are far from the dance floor.
 It's the part that nags you while day dreaming in the classroom or at work or as you walk down the street to sign on.
 It's the part that finally convinces the punters to make that trip down to the record shop and buy it.
-So, slip on the 12" or your dance compilation and sing along with the breakdc~wn sections; any old words will do, just whatever comes out of your mouth.
+So, slip on the 12" or your dance compilation and sing along with the breakdown sections; any old words will do, just whatever comes out of your mouth.
 If you have difficulty in forming a tune in your head or you feel a bit inhibited, flick through your copy of the Guinness Book of Hits and pick any Top Five record that takes your fancy and see if you can sing the chorus of it along to the track.
 
 Take for example:
@@ -1903,7 +1903,8 @@ We used a company called Rush Release and we would recommend them to anyone.
 They are based in South London.
 Find their telephone number in the Music Week Directory.
 Make an appointment.
-Get down there wit~ a T.P. Play it to them.
+Get down there with a T.P.
+Play it to them.
 Listen to their advice - and take it.
 
 These promoters have various lists of clubs and DJs that are applicable for sending every type of record to.
@@ -1977,7 +1978,7 @@ A distributor can only supply a demand, they don't go out there and sell, sell, 
 Each of the major record companies have their sales forces.
 We mentioned earlier that until a few years ago nobody outside of the majors had access to this form of weight.
 But now we have a number of independent sales forces that are breaking records from the independent sector at an almost monotonous rate.
-We should have made it clear that these independent sales forces do most of their work for the majors; they are hired to work on priority releases as a back up, ensuring each chart return shop gets a visit h~ice a week by a salesman pushing the same record.
+We should have made it clear that these independent sales forces do most of their work for the majors; they are hired to work on priority releases as a back up, ensuring each chart return shop gets a visit twice a week by a salesman pushing the same record.
 
 These men are not motivated by any altruistic ideals.
 They are a phenomena of the Thatcher years.
