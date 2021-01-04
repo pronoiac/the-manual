@@ -12,7 +12,7 @@ IN MAKING THE UNTHINKABLE HAPPEN.
 KLF 009B
 1988 (YOU KNOW WHAT'S GONE) 
 
-Ê 
+---
 
 TEXT BY: 
 
@@ -102,7 +102,7 @@ Spend the remainder of the morning amassing the rest of the tools you will need 
 
 5. A copy of the latest edition of the Guinness Book of British Hit Singles. 
 
-6. A copy of the Music Week Directory. This you will have to send off for. Address your envelope to: Sylvia Calver, Morgan Grampian Plc, Royal Sovereign House, 40 Beresford Street, London SE18 6BQ (telephone 01-854-2200) with a cheque or postal order for £15.00. It will take about ten days to get to you. 
+6. A copy of the Music Week Directory. This you will have to send off for. Address your envelope to: Sylvia Calver, Morgan Grampian Plc, Royal Sovereign House, 40 Beresford Street, London SE18 6BQ (telephone 01-854-2200) with a cheque or postal order for &pound;15.00. It will take about ten days to get to you. 
 
 7. A hard back note book and a fine point, black ball Pentel. 
 
@@ -166,7 +166,7 @@ In your case all the action will be taking place in the control room. The above 
 
 Many of the more successful studios have expanded their complexes so as to contain more than one studio. They might have a number of studios offering a range of services, from four track to forty eight track, SSL and manual and, more than likely nowadays, a programming suite replacing the need for a four/eight/sixteen track demo studio. 
 
-The way that recording studios base their rates (what they want you to pay them) can vary from studio to studio. The standard quoted by each studio is their hourly rate; for twenty four track this can range from £20 per hour to £150 per hour. 
+The way that recording studios base their rates (what they want you to pay them) can vary from studio to studio. The standard quoted by each studio is their hourly rate; for twenty four track this can range from &pound;20 per hour to &pound;150 per hour. 
 
 If it were only that simple. The studio manager's only way of proving his worth to the world is by transforming all the great tracts of space on his wall chart calendar pinned to the board above his desk into something that is crammed with blue, yellow, red and green little bits of sticky back paper, each signifying another session booked. (Studio managers will hike round a last year's crowded wall chart calendar as a C.V. when looking for a new job.) This is all good news for you. That studio manager will be willing to offer you all sorts of favourable deals just to prevent a day slipping by without the corresponding box on the calendar not having a coloured sticker on it. 
 
@@ -184,7 +184,7 @@ Deals can be based on:-
 
 6. LOCK OUT. This is when, although you may be working in a studio for ten hours a day, the studio cannot sell off the remaining fourteen hours as down time to another client. Most lock out deals are based on them being the equivalent of twelve hours. So, if you were to work for a sixteen hour stretch you would be getting yourself four free hours. 
 
-The more expensive the hourly rate a studio charges the better equipped and flash it will be. You won't need an expensive studio. Expensive studios are for major record companies to put their major (or would-be major) artists in, where they can spend as long as it takes to make their internationally-sounding master work, while the decor and amenities of the place neither challenges their ego or standing in the market place. These establishments and the engineers who work in them are only ever interested in the LP that costs at least £150,000 to make, not a cheeky little record like yours that's going to surprise everybody by getting to Number One. What you want is the moderately priced studio whose gear is intact and where all concerned are as hungry and enthusiastic as you are to prove that they can do it. 
+The more expensive the hourly rate a studio charges the better equipped and flash it will be. You won't need an expensive studio. Expensive studios are for major record companies to put their major (or would-be major) artists in, where they can spend as long as it takes to make their internationally-sounding master work, while the decor and amenities of the place neither challenges their ego or standing in the market place. These establishments and the engineers who work in them are only ever interested in the LP that costs at least &pound;150,000 to make, not a cheeky little record like yours that's going to surprise everybody by getting to Number One. What you want is the moderately priced studio whose gear is intact and where all concerned are as hungry and enthusiastic as you are to prove that they can do it. 
 
 Although a Number One single cannot sound like an indie trash record, they do not have to sound like they have cost a million to make, unlike a Number One LP. 
 
@@ -194,7 +194,7 @@ You are going to need to book five consecutive days lock out in a manual operate
 
 Before you start dialling make a few notes:- 
 
-1. Pay no more than £40 per hour (exclusive of VAT) for the basic rates. 
+1. Pay no more than &pound;40 per hour (exclusive of VAT) for the basic rates. 
 
 2. Ensure it includes fees for the best available engineer. 
 
@@ -202,7 +202,7 @@ Before you start dialling make a few notes:-
 
 If you smoke it's time to light up, then pick up the telephone and dial. Ask for the studio manager. Just remember, the studio manager is going to be out to impress YOU the potential client. They won't be thinking: "Who's this dick head calling up who doesn't know what they're talking about?" They will be too worried that you are thinking they are the total dick head and on that basis will book a rival studio. Give him your name and the company you are from and with the information we have already given you start doing your first deal. 
 
-First checking to see they have the facilities you require, the studio will then try to flog you down time or odd days here and there. Hold firm. You have got to have five clear consecutive days and you want to start the following Monday with their best in-house engineer. If they have not got, or are unable to shift any of their other clients to fit you in, tell them you will have to look elsewhere. They will be getting nervous now, as they might be just about to lose anything from £1,000 to £100,000 worth or business. So, when he says they do have the five consecutive days but not starting until the tenth (or whatever date they quote) tell him to pencil it in ("pencil" means provisionally booked) and you will get back to him in a couple of days to let him know either way. It might be worth having a bit of a chat with him about what other clients they have had in lately. Ask if they have had any hits come out of the studio, that sort of thing. This helps you build up a bit of a vibe where the studio's at. Then call the next studio on your list and repeat the process. 
+First checking to see they have the facilities you require, the studio will then try to flog you down time or odd days here and there. Hold firm. You have got to have five clear consecutive days and you want to start the following Monday with their best in-house engineer. If they have not got, or are unable to shift any of their other clients to fit you in, tell them you will have to look elsewhere. They will be getting nervous now, as they might be just about to lose anything from &pound;1,000 to &pound;100,000 worth or business. So, when he says they do have the five consecutive days but not starting until the tenth (or whatever date they quote) tell him to pencil it in ("pencil" means provisionally booked) and you will get back to him in a couple of days to let him know either way. It might be worth having a bit of a chat with him about what other clients they have had in lately. Ask if they have had any hits come out of the studio, that sort of thing. This helps you build up a bit of a vibe where the studio's at. Then call the next studio on your list and repeat the process. 
 
 Once you have got through your list of studios in your local(ish) area go and put the kettle on, take a leak and make yourself a cup of tea (coffee if you have to) as the next move you have to make has no simple ABC answer. 
 
@@ -248,13 +248,13 @@ Of course, it would be bad for the banks if they were seen to be throwing too ma
 
 If for some reason you already have some property (or have a family who are foolish enough to indulge your wilder whims and provide you with collateral) you will be at a disadvantage. As you sit there in the sucker's seat in the manager's office he will smell the scent of securities. He will be checking your wrist veins to sink his syringe in and all the time he will be telling you about the Genesis CD he has just bought or how you would never guess it, but he used to be a punk and stills treasures his copy of "Neat Neat Neat" by the Damned. 
 
-So it is best to go in there skint and with no securities. Of course there is no point in asking to borrow any money. Just put yourself in the bank manager's position; some unlikely youth comes in, looking like nothing in their ad campaigns and makes some outrageous request for a £20,000 unguaranteed loan to finance the making of a Number One hit single. Would you let them have the money? If this lad were to start brandishing a copy of this publication by The Timelords, you would advise him that he had been had and should get a refund on the book instantly before going out to look for an available vacancy on a youth training scheme. 
+So it is best to go in there skint and with no securities. Of course there is no point in asking to borrow any money. Just put yourself in the bank manager's position; some unlikely youth comes in, looking like nothing in their ad campaigns and makes some outrageous request for a &pound;20,000 unguaranteed loan to finance the making of a Number One hit single. Would you let them have the money? If this lad were to start brandishing a copy of this publication by The Timelords, you would advise him that he had been had and should get a refund on the book instantly before going out to look for an available vacancy on a youth training scheme. 
 
 As we said in the introductory chapter having no money sharpens the wits. Forces you never to make the wrong decision. There is no safety net to catch you when you fall. 
 
 If you already have an account with a bank make the appointment with the manger or his assistant. If not, get into any branch (the nearest to where you live will do as long as it's one of the big five). Open a current account and make that appointment. Do this on Monday afternoon while you're out and about. The appointment should be for some time that week. Just tell them you are setting up a small, independent record label - no big plans yet, just aiming to put out the one single and see how it goes. Tell him there will be a couple of times when you will have to issue cheques before others have come in. No big stuff. You will let him know beforehand. The most important thing is to get a rapport going with him; attempt to keep him in touch with what is happening over the next few weeks. 
 
-As well as having the pusher's instincts, the bank manager has the instincts of the old mother hen. The small business accounts are his baby chicks and he loves to watch them grow. If you were to go in and try and convince him of world domination plans he could only be disappointed with whatever results you had. It is necessary that he should feel part of it all when everything starts to take off. It will be then that you will need his serious help. It will be then that you will have to find £17,000 by the end of the week and there is no sight of anything coming in until the beginning of the next month. 
+As well as having the pusher's instincts, the bank manager has the instincts of the old mother hen. The small business accounts are his baby chicks and he loves to watch them grow. If you were to go in and try and convince him of world domination plans he could only be disappointed with whatever results you had. It is necessary that he should feel part of it all when everything starts to take off. It will be then that you will need his serious help. It will be then that you will have to find &pound;17,000 by the end of the week and there is no sight of anything coming in until the beginning of the next month. 
 
 MONDAY EVENING 
 
@@ -332,7 +332,7 @@ Unless there is a revival of the zeitgeist of times past where the lyric in some
 
 Sometimes, almost the opposite can happen. By covering a cleverly picked old song it can be re-recorded in such a way that it is now more relevant to today's new record buyers, both lyrically and musically, than the original was to the past generations of hit makers. Tiffany's "I Think We're Alone Now" and Yazz's "The Only Way Is Up" are both perfect examples of this in 1988. The original of "I Think We're Alone Now" by Tommy Roe and the late seventies cover by The Rubinoos were classics for the discerning but could not compete in the U.K. market place of their day. 
 
-The other negative in doing a cover version is you loose all the writing credit. That means you will earn no publishing money on the record, however many it sells. We will explain later the mysteries of publishing, but for now just take it from us that having a Number One with a cover, as opposed to your own song, is the equivalent of throwing away a minimum of £10,000. 
+The other negative in doing a cover version is you loose all the writing credit. That means you will earn no publishing money on the record, however many it sells. We will explain later the mysteries of publishing, but for now just take it from us that having a Number One with a cover, as opposed to your own song, is the equivalent of throwing away a minimum of &pound;10,000. 
 
 There is no denying that in picking the right smash from the past and recording it well will result in a sure fire success. The producers of the day time shows at Radio One will have to only hear 30 the opening bars of your record to know that there will be a few slots in their shows for it; "the housewives at home and the husbands on the building site" will be singing along with it immediately. It's not going to take them three or four listens before they decide whether they like the song. That decision was made long before you ever thought of having a Number One. As for the current 7" single buying generation who might have never heard the song before, they will automatically be given the chance to hear the record three or four times on the radio. 
 
@@ -674,7 +674,7 @@ Monday morning. A rain drenched hitch, an Intercity Saver, motorway mayhem with 
 
 Solicitors. We spoke a little of them earlier on. The quote: "Don't move without first checking with your solicitor is the fastest way of making him a very rich man. But definitely do not go a block without first giving him a call", is true. 
 
-From now on in you will be asked to sign various agreements, side letters and amendments. Don't sign any of them without your solicitor first reading it through and taking account of his advice. The trouble is, solicitors become addictive. He will be the one person in London who will always be on your side and see your point of view. Talking to him will give you a sense of warmth and comfort - just like heroin. But remember, his services will cost you at least £50 per hour, even if it's on the pay later scheme. 
+From now on in you will be asked to sign various agreements, side letters and amendments. Don't sign any of them without your solicitor first reading it through and taking account of his advice. The trouble is, solicitors become addictive. He will be the one person in London who will always be on your side and see your point of view. Talking to him will give you a sense of warmth and comfort - just like heroin. But remember, his services will cost you at least &pound;50 per hour, even if it's on the pay later scheme. 
 
 Things to watch out for with solicitors. Young ones are often eager and angry men. They were wimps at school and now with all their learning behind them, they are out to show the world what they knew all along. They will hint at the fortunes to be had. They will throw their hands up in horror at the undotted "i's" and uncrossed "t's" in proposed contracts. "Whoever drew up this contract hasn't got a clue!" is a favourite expression. This young, eager, go-getting type might seem to be the one you feel you can relate to in some way. Be warned. He is as likely to lead you into deep water or scare off potential offers. Our advice would be to go with the slightly more mature solicitor. The wiser one. The one who knows how people's hearts and minds work, not just the sub clauses and bottom lines. No matter if he isn't concerned about hearing your track, as long as he will listen to the way you want to do things. 
 
@@ -712,7 +712,7 @@ You don't need any of that. Just make sure that it's bright and colourful and th
 
 Don't bother using a photograph. They just mean trouble and involve expensive, time wasting photo sessions. Mind you, we used one to supposedly great effect but it cost us a fortune. 
 
-Ninety nine per cent of graphic artists are good blokes, even if you don't like the way they dress or the glasses that they wear. They will care about your sleeve, listen to what you have to say and get the job done properly. Ask them to liaise with whoever is handling the manufacturing at your distributors about flap sizes and where camera-ready artwork should be delivered. We are afraid this can cost you as much as £400 for a seven and twelve inch sleeve. Tell them to keep the budget as tight as possible. His invoice, when he gets round to sending it to you, will be one that allows for twenty eight days to pay. 
+Ninety nine per cent of graphic artists are good blokes, even if you don't like the way they dress or the glasses that they wear. They will care about your sleeve, listen to what you have to say and get the job done properly. Ask them to liaise with whoever is handling the manufacturing at your distributors about flap sizes and where camera-ready artwork should be delivered. We are afraid this can cost you as much as &pound;400 for a seven and twelve inch sleeve. Tell them to keep the budget as tight as possible. His invoice, when he gets round to sending it to you, will be one that allows for twenty eight days to pay. 
 
 Next. Your plugger. The man responsible for getting the nation to hear your record. From now on in this man will undoubtedly be the most important person in the jigsaw. Without his faith, vision and understanding of the fastest lane in this particular rat race, you will be nowhere. 
 
@@ -768,7 +768,7 @@ One of us has been involved with one publicist for nine years. It is this public
 
 We know sod all about other publicists or how to judge them on first meeting them. So ask your plugger to recommend one if he hasn't already got one on the pay roll. 
 
-Publicists want money as well. We paid Mick Houghton £1,000 for doing our single. He will hate us saying this but he gets a lot less than the plugger because he had a lot less overheads and had to put in a lot less man hours. 
+Publicists want money as well. We paid Mick Houghton &pound;1,000 for doing our single. He will hate us saying this but he gets a lot less than the plugger because he had a lot less overheads and had to put in a lot less man hours. 
 
 The tools of a publicist's trade are a telephone, a photocoping machine and a capacity to lie. 
 
@@ -900,7 +900,7 @@ COUNT DOBOWN
 
 Release date is looming. The right clubs are playing your record. The plugger has already had a meeting with a very close friend up at Radio One. The publicist keeps telling you he's got to have some photos and some sort of biog. You know you need a video. 
 
-Those pay-up dates on the invoices are looming larger than the release date. They were adding up to £12,000 at the last count. You need to get your hands on twenty thousand pounds - fast. No muggable pensioner is carrying that much cash about with them and it's not as if borrowing a fiver from mum is going to make any difference. Enterprise Allowance Scheme? Why didn't you think of that before! Because you are not thick. 
+Those pay-up dates on the invoices are looming larger than the release date. They were adding up to &pound;12,000 at the last count. You need to get your hands on twenty thousand pounds - fast. No muggable pensioner is carrying that much cash about with them and it's not as if borrowing a fiver from mum is going to make any difference. Enterprise Allowance Scheme? Why didn't you think of that before! Because you are not thick. 
 
 You are going to have to hold tight. 
 
