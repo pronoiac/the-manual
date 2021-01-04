@@ -30,13 +30,16 @@ KLF PUBLICATIONS IS A KLF COMMUNlCATIONS COMPANY
 KLF COMMUNICATIONS 1988
 FIRST PUBUSHED 1988
 
-ALL RIGHTS RESERVED. NO PART OF THIS PUBLICATION MAY BE REPRODUCED, STORED IN A RETRIEVAL SYSTEM OR TRANSMITTED IN ANY FORM OR BY ANY MEANS ELECTRONIC, MECHANICAL, PHOTOCOPYING, RECORDING OR OTHERWISE WITHOUT THE PRIOR CONSENT OF KLF PUBLICATIONS.
+ALL RIGHTS RESERVED.
+NO PART OF THIS PUBLICATION MAY BE REPRODUCED, STORED IN A RETRIEVAL SYSTEM OR TRANSMITTED IN ANY FORM OR BY ANY MEANS ELECTRONIC, MECHANICAL, PHOTOCOPYING, RECORDING OR OTHERWISE WITHOUT THE PRIOR CONSENT OF KLF PUBLICATIONS.
 
 THIS BOOK IS SOLD SUBJECT TO THE CONDITION THAT IT SHALL NOT BY WAY OF TRADE OR OTHERWISE BE LENT, RESOLD, HIRED OUT OR OTHERWISE CIRCULATED WITHOUT THE PUBLISHER'S PRIOR CONSENT IN ANY FORM OF BINDING OR COVER OTHER THAN THAT IN WHICH IT lS PUBLISHED AND WITHOUT A SIMILAR CONDITION INCLUDING THIS CONDITION BEING IMPOSED IN THE SUBSEOUENT PUBLISHER.
 
 GUARANTEE - HOW TO OBTAIN IT
 
-WE GUARANTEE THAT WE WILL REFUND THE COMPLETE PRICE OF THIS MANUAL IF YOU ARE UNABLE TO ACHIEVE A NUMBER ONE SINGLE IN THE OFFICIAL (GALLUP) U.K. CHARTS WITHIN THREE MONTHS OF THE PURCHASE OF THIS MANUAL AND ON CONDITION THAT YOU HAVE FULFILLED OUR INSTRUCTIONS TO THE LETTER. TO RECEIVE THIS GUARANTEE PLEASE WRITE TO KLF PUBLICATIONS, BOX 283, HP21 7HG, U.K. WITH YOUR NAME, ADDRESS AND A PHOTOCOPY OF YOUR PURCHASE RECEIPT AND AN S.A.E. YOU WlLL RECEIVE YOUR GUARANTEE WITHIN 28 DAYS.
+WE GUARANTEE THAT WE WILL REFUND THE COMPLETE PRICE OF THIS MANUAL IF YOU ARE UNABLE TO ACHIEVE A NUMBER ONE SINGLE IN THE OFFICIAL (GALLUP) U.K. CHARTS WITHIN THREE MONTHS OF THE PURCHASE OF THIS MANUAL AND ON CONDITION THAT YOU HAVE FULFILLED OUR INSTRUCTIONS TO THE LETTER.
+TO RECEIVE THIS GUARANTEE PLEASE WRITE TO KLF PUBLICATIONS, BOX 283, HP21 7HG, U.K. WITH YOUR NAME, ADDRESS AND A PHOTOCOPY OF YOUR PURCHASE RECEIPT AND AN S.A.E.
+YOU WlLL RECEIVE YOUR GUARANTEE WITHIN 28 DAYS.
 
 
 THIS BOOK IS DEDICATED TO THE MEMORY OF DON LUCKNOW.
@@ -101,7 +104,8 @@ We don't know.
 If this book succeeds in becoming Bert Weedon's "Play In A Day" for some lost month in the late eighties we will be happy.
 If anybody actually gets a Number One by following our instructions we promise them a night out with The JAMS in Madagascar.
 We will arrange everything.
-For those that might be offended please read all "he's", "hims" and "his"' as "she's", "hers" and "hers"'. Being blokes it was easier writing it the way we did.
+For those that might be offended please read all "he's", "hims" and "his"' as "she's", "hers" and "hers"'.
+Being blokes it was easier writing it the way we did.
 
 So how do you go about achieving a U.K. Number One?
 Follow this simple step by step guide:
@@ -132,7 +136,8 @@ There is no place for the nostalgia of the four lads who shook the world or the 
 
 Watch Top of the Pops religiously every week and learn from it.
 When the time comes it is through T.O.T.P. that you will convince the largest cross section of the British public to go out and buy your record.
-Remember, Top of the Pops is all powerful and has outlasted all the greats (Cliff being the exception to the rule). Taking the angst-ridden, "I'm above all this!"
+Remember, Top of the Pops is all powerful and has outlasted all the greats (Cliff being the exception to the rule).
+Taking the angst-ridden, "I'm above all this!"
 outsider stance only gets you so far and even then takes sodden years and ends up with you alienating vast chunks of the Great British public who don't want to be confronted with Jim Reid's skin problem on a Thursday evening.
 I repeat, take Top of the Pops to your bosom and learn to love the platform that matters the most.
 
@@ -149,26 +154,30 @@ Monday morning.
 Check that the company name that you have chosen is still sound.
 Be up, dressed and out by 9am.
 You are going to have to get used to getting up earlier; no lying in until noon now.
-From now on every time you telephone someone on business remember to give them your name and the company you are from (even though it's only you). Don't bother getting headed note paper.
+From now on every time you telephone someone on business remember to give them your name and the company you are from (even though it's only you).
+Don't bother getting headed note paper.
 People waste a lot of time, effort and money having stationery produced when getting a new business off the ground.
 People in the late eighties can see through the smart graphics.
 
 Spend the remainder of the morning amassing the rest of the tools you will need for the job in hand.
 These are:
 
-1. A record player (the crappier the better as long as it actually works). Mass appeal records can always transcend any apparatus they are played on; the exp ensive set up is only for judging coffee table records.
+1. A record player (the crappier the better as long as it actually works).
+Mass appeal records can always transcend any apparatus they are played on; the exp ensive set up is only for judging coffee table records.
 
 2. Copies of the latest in the series of "Now That's What I Call Music" and "Hits" LPs.
 
 3. A couple of the most recent dance compilation LPs ("The Techno Sounds of Dagenham Volume Vl", etc.).
 
-4. All the 7" singles in your house that ever made the Top 5. (If there are any other records you want to add to the pile make sure there is a very good reason why they should be there and make sure they were never released as indie records or had any punky associations.)
+4. All the 7" singles in your house that ever made the Top 5.
+(If there are any other records you want to add to the pile make sure there is a very good reason why they should be there and make sure they were never released as indie records or had any punky associations.)
 
 5. A copy of the latest edition of the Guinness Book of British Hit Singles.
 
 6. A copy of the Music Week Directory.
 This you will have to send off for.
-Address your envelope to: Sylvia Calver, Morgan Grampian Plc, Royal Sovereign House, 40 Beresford Street, London SE18 6BQ (telephone 01-854-2200) with a cheque or postal order for &pound;15.00. It will take about ten days to get to you.
+Address your envelope to: Sylvia Calver, Morgan Grampian Plc, Royal Sovereign House, 40 Beresford Street, London SE18 6BQ (telephone 01-854-2200) with a cheque or postal order for &pound;15.00.
+It will take about ten days to get to you.
 
 7. A hard back note book and a fine point, black ball Pentel.
 
@@ -261,7 +270,8 @@ In large studios these are usually a breed of highly efficient women whose matri
 ENGINEERS
 
 There will also be a small posse of recording studio engineers on call, from the tea boy who started last Monday and hasn't been sacked yet, to the senior engineer.
-All engineers start life as tea boys and are officially called "tape ops" (the person who switches the tape recorders on and off). To put it simply, the recording studio engineer's job is to put the noise that musicians create on tape.
+All engineers start life as tea boys and are officially called "tape ops" (the person who switches the tape recorders on and off).
+To put it simply, the recording studio engineer's job is to put the noise that musicians create on tape.
 Large studios will have a maintenance engineer.
 If any malfunction occurs with the studio hardware it is his job to get it working again - fast.
 Smaller studios usually have one on call.
@@ -314,18 +324,24 @@ That studio manager will be willing to offer you all sorts of favourable deals j
 
 Deals can be based on:-
 
-1. INTRODUCTORY OFFER. This will be an obvious one for you.
+1. INTRODUCTORY OFFER.
+This will be an obvious one for you.
 
-2. DOWN TIME. This is usually the time between when the official client finishes (usually 2am) and starts again (usually 10am).
+2. DOWN TIME.
+This is usually the time between when the official client finishes (usually 2am) and starts again (usually 10am).
 
-3. BLOCK BOOKING. This would only happen if a client wanted a month or more to record an LP.
+3. BLOCK BOOKING.
+This would only happen if a client wanted a month or more to record an LP.
 
-4. CANCELLATION TIME. This is when a client has cancelled studio time at the very last minute and the studio is desperate to sell it off.
+4. CANCELLATION TIME.
+This is when a client has cancelled studio time at the very last minute and the studio is desperate to sell it off.
 
-5. REGULAR CUSTOMER RATE. Not applicable to you but just for reference.
+5. REGULAR CUSTOMER RATE.
+Not applicable to you but just for reference.
 By the time you use the same studio for the third time you should be trying to pull this one.
 
-6. LOCK OUT. This is when, although you may be working in a studio for ten hours a day, the studio cannot sell off the remaining fourteen hours as down time to another client.
+6. LOCK OUT.
+This is when, although you may be working in a studio for ten hours a day, the studio cannot sell off the remaining fourteen hours as down time to another client.
 Most lock out deals are based on them being the equivalent of twelve hours.
 So, if you were to work for a sixteen hour stretch you would be getting yourself four free hours.
 
@@ -405,10 +421,12 @@ All that should be balanced with something in the tone of the studio manager's v
 The one that sounds understanding.
 The one that you feel could be on YOUR side.
 Then make your telephone call and confirm your booking.
-If it is now after 3pm and you have your studio booked, switch on Radio One and listen to "Steve Wright In The Afternoon". Viewed from a certain angle the man is a genius.
+If it is now after 3pm and you have your studio booked, switch on Radio One and listen to "Steve Wright In The Afternoon".
+Viewed from a certain angle the man is a genius.
 Find that angle and view.
 He is the most popular DJ in the country.
-He has been the heartbeat of the British psyche since 1985. You don't even have to like him to be awed by him.
+He has been the heartbeat of the British psyche since 1985.
+You don't even have to like him to be awed by him.
 
 This above paragraph is not an attempt at obvious irony, it is for real.
 If you can't find that angle then I am afraid you have wasted your money in buying this manual.
@@ -475,7 +493,8 @@ If things were to go badly wrong and you weren't able to keep up the interest pa
 
 Of course, it would be bad for the banks if they were seen to be throwing too many families onto the street or forcing business' to the wall in order to redeem their loans.
 They would always prefer to lend more money so as to help pay off the interest on the earlier loans.
-Banks have spent millions over the past few years trying to destroy the public's old impression of the bank manager in bowler, brolly and pinstripe, to the approachable and amiable sort of chap who will attempt at all times to say "Yes!". They have only done this, not because they like being nicer, but to seduce you into coming in and borrowing more money.
+Banks have spent millions over the past few years trying to destroy the public's old impression of the bank manager in bowler, brolly and pinstripe, to the approachable and amiable sort of chap who will attempt at all times to say "Yes!".
+They have only done this, not because they like being nicer, but to seduce you into coming in and borrowing more money.
 Remember, when you are going in to see a bank manager you're going to see a pusher; a pusher dealing in one of the purest, most addictive drugs - money.
 
 If for some reason you already have some property (or have a family who are foolish enough to indulge your wilder whims and provide you with collateral) you will be at a disadvantage.
@@ -493,7 +512,8 @@ Forces you never to make the wrong decision.
 There is no safety net to catch you when you fall.
 
 If you already have an account with a bank make the appointment with the manger or his assistant.
-If not, get into any branch (the nearest to where you live will do as long as it's one of the big five). Open a current account and make that appointment.
+If not, get into any branch (the nearest to where you live will do as long as it's one of the big five).
+Open a current account and make that appointment.
 Do this on Monday afternoon while you're out and about.
 The appointment should be for some time that week.
 Just tell them you are setting up a small, independent record label - no big plans yet, just aiming to put out the one single and see how it goes.
@@ -545,7 +565,8 @@ No hype.
 No massive record company advances.
 No front covers in the rock papers.
 No loyal following built up over months of solid touring.
-They have all been released by what is commonly known as Indie record labels (however, this is not the place to define indie). Since the rise of the indie label in the days of post-punk they have provided a healthy means for no hopers, outsiders and terminally angry types to unload their angst.
+They have all been released by what is commonly known as Indie record labels (however, this is not the place to define indie).
+Since the rise of the indie label in the days of post-punk they have provided a healthy means for no hopers, outsiders and terminally angry types to unload their angst.
 They have also proved rich hunting grounds for the major record companies looking for fresh meat.
 
 The indie record companies were cottage industries fuelled by enthusiasm, passion and belief.
@@ -553,7 +574,8 @@ Some grew, became strong and established international links, whilst others with
 The strong ones were able to provide plafforms for the artists who were able to build up large and loyal followings to develop and prosper, even have moderate hit single success.
 The Smiths and New Order on Rough Trade and Factory respectively were the obvious champions in this.
 
-It was always understood that it was only the major record companies that had the infrastructure, the money, the efficiency, the might, the power and the means of persuasion to take singles all the way to THE TOP. Like the giants of Fleet Street weighed down by ancient union agreements and strapped to out of date means of production, the major record companies are beginning to look like lumbering dinosaurs.
+It was always understood that it was only the major record companies that had the infrastructure, the money, the efficiency, the might, the power and the means of persuasion to take singles all the way to THE TOP.
+Like the giants of Fleet Street weighed down by ancient union agreements and strapped to out of date means of production, the major record companies are beginning to look like lumbering dinosaurs.
 
 Over the past ten years anybody with overtly commercial material would never have considered using the indie network.
 Everybody with an eye on the Top Spot knew that the indie scene was for the spotty and marginal and people who celebrated the glories of being spotty and marginal.
@@ -565,7 +587,8 @@ Each of these individual services will have a section dedicated to their own pec
 
 However efficient and organised these service industries became, they could only do so much with the spotty and marginal.
 But it was only a matter of time before something came along from within the indie scene that was neither "spotty" nor "marginal" and had definite mass appeal.
-That record was "Pump Up The Volume" by MARRS. It was a turning point.
+That record was "Pump Up The Volume" by MARRS.
+It was a turning point.
 That record not only became Number One in the UK it became an international smash.
 
 The "indie scene" in this country since then has been filled with a new found confidence: everything can be achieved.
@@ -635,7 +658,8 @@ Songs that have been written in such a way and reached Number One can only be do
 You know the sort of thing, "Sailing" by Rod Stewart, "Without You" by Nilsson What the Golden Rules can provide you with is a framework that you can slot the component parts into.
 
 Firstly, it has to have a dance groove that will run all the way through the record and that the current 7" buying generation will find irresistible.
-Secondly, it must be no longer than three minutes and thirty seconds (just under 3'20 is preferable). If they are any longer Radio One daytime DJs will start fading early or talking over the end, when the chorus is finally being hammered home - the most important part of any record.
+Secondly, it must be no longer than three minutes and thirty seconds (just under 3'20 is preferable).
+If they are any longer Radio One daytime DJs will start fading early or talking over the end, when the chorus is finally being hammered home - the most important part of any record.
 Thirdly, it must consist of an intro, a verse, a chorus, second verse, a second chorus, a breakdown section, back into a double length chorus and outro.
 Fourthly, lyrics.
 You will need some, but not many.
@@ -698,7 +722,8 @@ Unless there is a revival of the zeitgeist of times past where the lyric in some
 
 Sometimes, almost the opposite can happen.
 By covering a cleverly picked old song it can be re-recorded in such a way that it is now more relevant to today's new record buyers, both lyrically and musically, than the original was to the past generations of hit makers.
-Tiffany's "I Think We're Alone Now" and Yazz's "The Only Way Is Up" are both perfect examples of this in 1988. The original of "I Think We're Alone Now" by Tommy Roe and the late seventies cover by The Rubinoos were classics for the discerning but could not compete in the U.K. market place of their day.
+Tiffany's "I Think We're Alone Now" and Yazz's "The Only Way Is Up" are both perfect examples of this in 1988.
+The original of "I Think We're Alone Now" by Tommy Roe and the late seventies cover by The Rubinoos were classics for the discerning but could not compete in the U.K. market place of their day.
 
 The other negative in doing a cover version is you loose all the writing credit.
 That means you will earn no publishing money on the record, however many it sells.
@@ -718,7 +743,8 @@ GROOVE
 
 The first of the component parts you are going to need to find is the irresistible dance floor groove.
 
-Before we go any further we had better define "groove". It is basically the drum and bass patterns and all the other musical sounds on the record that are neither hummable or singalongable to.
+Before we go any further we had better define "groove".
+It is basically the drum and bass patterns and all the other musical sounds on the record that are neither hummable or singalongable to.
 Groove is the underlying sex element of the record and we are afraid for U.K. Number Ones this can never be left too rabidly raw on the 7" format.
 It upsets our subliminal national moral code.
 We can cope with smut but not grind.
@@ -767,9 +793,12 @@ Except on very rare occasions all pop music is rhythmically based on having four
 You naturally tap your toe to the beat and every time you tap your toe four times is one bar, you naturally clap your hands or snap your fingers on every second beat (twice every bar).
 
 The speed of modern records is measured by the amount of beats per minute (BPM) there are in any given record.
-Using BPM's as a measurement has only come into existence since the early eighties, since which time nearly all records have been made with the use of a click track (electronic metronome). This enables any musicians who may play on a track to keep in perfect time.
+Using BPM's as a measurement has only come into existence since the early eighties, since which time nearly all records have been made with the use of a click track (electronic metronome).
+This enables any musicians who may play on a track to keep in perfect time.
 In bygone times records might have speeded up and slowed down throughout the performance thus an accurate BPM could not be quoted.
-Knowing the BPM of each record in his collection is all important to a club DJ. So that he can be sure that when he is programming each section of the night he won't jolt the dancers on the floor by suddenly dropping from a 124 BPM record down to an 87 BPM record, then back up to one that is 114 BPM. Heavy acid sessions the exception.
+Knowing the BPM of each record in his collection is all important to a club DJ.
+So that he can be sure that when he is programming each section of the night he won't jolt the dancers on the floor by suddenly dropping from a 124 BPM record down to an 87 BPM record, then back up to one that is 114 BPM.
+Heavy acid sessions the exception.
 
 The different styles in modern club records are usually clustered around certain BPM's: 120 is the classic BPM for House music and its various variants, although it is beginning to creep up.
 Hi NRG is always above 125 but very rarely has it reached the dizzy heights of 140 BPM's.
@@ -816,7 +845,8 @@ by K.C. and the Sunshine Band.
 That one usually works and should get you going in the right direction but there are hundreds to choose from.
 
 The lyrics for the chorus must never deal with anything but the most basic of human emotions.
-This is not us trying to be cynical in a clever sort of way when we say "stick to the cliches". The cliches are the cliches because they deal with the emotional topics we all feel.
+This is not us trying to be cynical in a clever sort of way when we say "stick to the cliches".
+The cliches are the cliches because they deal with the emotional topics we all feel.
 No records are bought in vast quantities because the lyrics are intellectually clever or deal in strange and new ideas.
 In fact, the lyrics can be quite meaningless in a literal sense but still have a great emotional pull.
 An obvious example of this was the chorus of our own record:
@@ -870,7 +900,8 @@ It's called "Live In Lover", either performed by Sinitta or ideally by a Dagenha
 "Live in lover I want you to be My live in lover for eternity"
 
 Either use it for yourselves or we will go and blow what last vestiges of credibility we have and do it ourselves.
-We can see it now: we'd call the act "Sharon Meets the KLF" and of course the b-side would have to be "Sharon Joins The JAMS". If there are any good looking Sharons out there that want to be pop stars please don't hesitate to contact us.
+We can see it now: we'd call the act "Sharon Meets the KLF" and of course the b-side would have to be "Sharon Joins The JAMS".
+If there are any good looking Sharons out there that want to be pop stars please don't hesitate to contact us.
 
 We are afraid you can't just go down to the local supermarket and listen to the check-out girls' talk and hope you can pick up the right line before Waterman gets to it.
 The line has to come to you and when it does you've got to grab it.
@@ -880,9 +911,12 @@ Morrisey has undoubtedly come up with some of the wittiest titles of the decade.
 "Shakespeare's Sister", "Girlfriend In A Coma" or "William It Was Really Nothing" are classic.
 However, with titles like these he will always be guaranteed a non Top Five placing.
 
-We made the mistake of calling our Number One "Doctorin' The Tardis". Obviously, we thought it a clever play on Coldcut's "Doctorin the House". We had the title before we made the record.
+We made the mistake of calling our Number One "Doctorin' The Tardis".
+Obviously, we thought it a clever play on Coldcut's "Doctorin the House".
+We had the title before we made the record.
 If we had had our wits about us we should have changed it to plain "Doctor Who" or at least "Hey!
-Doctor Who". Us trying to be witty- clever must have lost us a-few all important sales.
+Doctor Who".
+Us trying to be witty- clever must have lost us a-few all important sales.
 
 Do not attempt writing chorus lyrics that deal in regret, jealousy, hatred or any other negative emotions.
 These require a vocal performer of great depth to put it over well: the epic Euro balladeers or the kings of Country, the great soul men or the crown prince of hate - Johnny Rotten.
@@ -904,7 +938,8 @@ If a singer was able to have this calculated view of their own work the end prod
 So if you do see yourself as a singer, find a partner fast before going any further.
 
 If you do not have ambitions to sing it looks like you are in luck, as we have entered a period of pop history where singing as a focal point to communicate the emotional content of a Number One hit single is not necessary.
-The potential of this is something that seems to have been forgotten since the Beatles took their place on the world stage back in 1963. Yet again we have to thank the advent of DJ style records for helping rediscover this fact.
+The potential of this is something that seems to have been forgotten since the Beatles took their place on the world stage back in 1963.
+Yet again we have to thank the advent of DJ style records for helping rediscover this fact.
 
 The club D.J. (like his forerunner the dance band leader of the thirties, forties and fifties) realises that the most important thing is keeping the dance floor full and the thing that keeps the dancers dancing now (as it was then) is the music with its underpinning groove factor.
 Singing throughout has always just provided a distraction from the main event - what is happening on the dance floor and not on the stage.
@@ -1044,9 +1079,11 @@ The tried and tested guest soloists of the late eighties are: Miles Davis on tru
 Untried possibilities that might create some interest would be Jimmy Page or Junior Walker.
 But really we would recommend you don't bother - unless you can get Jimi Hendrix to do it.
 
-The last time the guest solo really helped on a Number One record was Stevie Wonder on Chakka Kahn's "I Feel For You". In the end it only provides the D.J. on Radio One with a bit of a talking point or at best a clincher angle in getting a Newsbeat interview.
+The last time the guest solo really helped on a Number One record was Stevie Wonder on Chakka Kahn's "I Feel For You".
+In the end it only provides the D.J. on Radio One with a bit of a talking point or at best a clincher angle in getting a Newsbeat interview.
 
-When song writers were craftsmen that sat in front of their pianos, heads filled with melodies and hands searching for chords and long before multi-tracked recording studios became a vital aid in modern song construction, they would call this part of the song the "middle eight" (it had eight bars). They would entertain themselves by introducing a different chord structure at this point with a refreshing new melody.
+When song writers were craftsmen that sat in front of their pianos, heads filled with melodies and hands searching for chords and long before multi-tracked recording studios became a vital aid in modern song construction, they would call this part of the song the "middle eight" (it had eight bars).
+They would entertain themselves by introducing a different chord structure at this point with a refreshing new melody.
 This technique still has its charms but you can leave it to the people who take a pride in writing songs for the sake of their craft.
 Even Elton John doesn't bother with them these days.
 It's the sort of thing that Green from Scritti has a go at.
@@ -1196,7 +1233,8 @@ Remember, if you ever leave go of the rudder to help the crew all hands may be l
 
 From now on in nearly everybody you will be dealing with has the possibility of becoming a millionaire by what they do.
 The success of your record is going to help them get there, even if they don't share directly in the profits of your little enterprise.
-It is because of this that you will not come across any "job's worths". Quite the opposite; nothing will be too much trouble.
+It is because of this that you will not come across any "job's worths".
+Quite the opposite; nothing will be too much trouble.
 
 Engineers are a rare breed.
 They all assume they are the greatest engincers in the world - or at least the greatest undiscovered engineers in the world - or at the very least, given the right gear to work with and a project like the next Sting or Peter Gabriel album, would soon become the greatest.
@@ -1349,7 +1387,8 @@ It is crap.
 There is no way out and you will have to plough on.
 
 The cynic in you must, by now, be thinking, "What are these dick head Timelords on about?
-They haven't told us one concrete thing to do since we've been in the studio other than, 'Leave it to the engineer and programmer!' If it was that easy, everybody would be having sodding Number Ones.
+They haven't told us one concrete thing to do since we've been in the studio other than, 'Leave it to the engineer and programmer!'
+If it was that easy, everybody would be having sodding Number Ones.
 This manual is a con.
 Just like all those 'get rich quick' and 'keep young and beautiful' books.
 Just another part of the late eighties sham.
@@ -1506,7 +1545,9 @@ Who would he recommend?
 The accountant should be your next appointment.
 Much of what has been said about solicitors applies to accountants.
 
-He will recommend you register for VAT. He will tell you to keep your receipts (even those you get when you buy a newspaper or a cup of coffee). Listen and learn.
+He will recommend you register for VAT.
+He will tell you to keep your receipts (even those you get when you buy a newspaper or a cup of coffee).
+Listen and learn.
 It will make no sense.
 He will show you petty cash books with empty columns waiting for figures.
 His world will seem incredibly important to him.
@@ -1561,7 +1602,8 @@ Use their phones and make an appointment to see him as soon as you can.
 
 Pluggers.
 They should be able to recommend at least one for you.
-Angela, who became our label manager at Rough Trade, recommended we talk to a strange American man called Scott Piering, who runs the ouffit "Appearing Music & Media Management". It might have been a mistake but we took him on.
+Angela, who became our label manager at Rough Trade, recommended we talk to a strange American man called Scott Piering, who runs the ouffit "Appearing Music & Media Management".
+It might have been a mistake but we took him on.
 You must have a meeting with at least one plugger by the end of this week.
 
 Sales forces.
@@ -1677,7 +1719,9 @@ Without having some sort of video a plugger will be pretty restricted in what he
 Even if videos don't get used for transmission they are very good for pluggers to send out to people and get them interested in your track.
 But more of videos when you have done the final mix.
 
-Within their set-up independent pluggers usually have someone who handles press: A PRESS OFFICER. The up market title for this person is A PUBLICIST. To put it bluntly, their job is to get as much acreage in all forms of printed media.
+Within their set-up independent pluggers usually have someone who handles press: A PRESS OFFICER.
+The up market title for this person is A PUBLICIST.
+To put it bluntly, their job is to get as much acreage in all forms of printed media.
 Publicists have to understand journalists and editors in the way the plugger understands radio producers.
 The publicist's role in the success of this operation is secondary.
 Turning a well-planned strategy into a reality through the press can be the best way to build a career - but this is done over months and years.
@@ -1699,7 +1743,9 @@ There are countless of obvious examples: Dinosaur Junior will never make the Bre
 
 One of us has been involved with one publicist for nine years.
 It is this publicist who handles our stuff.
-His name is Mick Houghton (pronounced How-ton). He is a reformed drug fiend, a would-be crime writer, a cricket fanatic and he also awaits the day the Grateful Dead will deliver a half decent LP. He is a realist.
+His name is Mick Houghton (pronounced How-ton).
+He is a reformed drug fiend, a would-be crime writer, a cricket fanatic and he also awaits the day the Grateful Dead will deliver a half decent LP.
+He is a realist.
 Gives no bullshit.
 Represents a lot of acts who get loads of front covers but never get on the A List down at Radio One.
 
@@ -1797,7 +1843,8 @@ Telephone the distributors and get them to book some cutting time for you at the
 Go outside and watch a plane cross the sky.
 Wonder where it's going and about the lives of the people on board and why doesn't the plane just drop out of the sky and what you would do if it did.
 
-Let Thursday be a similar sort of day to Wednesday (bar the minor tragedy). You will have to package and post cassettes of your record to your plugger, publicist and key person at the distributors.
+Let Thursday be a similar sort of day to Wednesday (bar the minor tragedy).
+You will have to package and post cassettes of your record to your plugger, publicist and key person at the distributors.
 
 Thursday evening.
 A cosy mild depression will settle in.
@@ -1847,14 +1894,17 @@ All written properly.
 People must have sweated for years to write some of these books and we can't be bothered with finishing this skimpy thing properly.
 
 We found a book this morning.
-"A Dictionary of Similes". Printed in 1807. Thought there might be something in it to spice up our writing style.
+"A Dictionary of Similes".
+Printed in 1807.
+Thought there might be something in it to spice up our writing style.
 Every page is a winner.
 We shall let it fall open.
 It's page two hundred and sixty five.
 MONEY TO MOTIONLESS and what do we read:
 
 Monotonous as the dress of charity children.
-(Anon). Moody as a poet.
+(Anon).
+Moody as a poet.
 (Thomas Shadwell) Mope like birds that are changing feather.
 (Longfellow) I am as mopish as if I were married and lived in a provincial town.
 (G.H. Lewis) Moral as a peppermint.
@@ -1894,7 +1944,8 @@ The clubs get the records for nothing and in return have to fill out reaction sh
 
 Lots of records are initially broken on the dance floor.
 It's all a cliche now, but it still works.
-A record is mailed out to the taste-making clubs four weeks before release as a white label or a fake American import (for DJ elitist credibility). Two weeks before release it gets mailed to the rest of the clubs and specialist dance record shops.
+A record is mailed out to the taste-making clubs four weeks before release as a white label or a fake American import (for DJ elitist credibility).
+Two weeks before release it gets mailed to the rest of the clubs and specialist dance record shops.
 James Hamilton starts writing about the track in his Record Mirror column.
 On the week of release the record bombs into the national chart.
 This is how records you have never heard, by artists you have never heard of, are suddenly appearing in the Top 40.
@@ -1909,7 +1960,8 @@ Listen to their advice - and take it.
 
 These promoters have various lists of clubs and DJs that are applicable for sending every type of record to.
 If they think it's only worth your while sending out only one hundred and fifty records they will tell you, even if by sending out three hundred they get twice as much money.
-For them to mail out three hundred records is going to cost you five hundred pounds (1988 rates). That's the amount we sent out for "Doctorin' The Tardis".
+For them to mail out three hundred records is going to cost you five hundred pounds (1988 rates).
+That's the amount we sent out for "Doctorin' The Tardis".
 
 They will demand cash up front.
 They will tell you of the numerous times they have been let down by small companies who have gone bust owing them hundreds.
@@ -1936,7 +1988,8 @@ The market research people, GALLUP, put them together.
 
 There are six hundred record shops sprinkled across the country that are lucky enough to have little computers in them.
 Each time somebody buys a single from any one of these shops, the shop assistant is supposed to tap into the computer the catalogue number of the record sold.
-These are the CHART RETURN SHOPS. After the close of play on each Saturday evening and before the broadcasting of the new charts on Radio One on Sunday evening, GALLUP will randomly choose two hundred or more from these six hundred shops, add up the score on their computers and with these figures base the chart.
+These are the CHART RETURN SHOPS.
+After the close of play on each Saturday evening and before the broadcasting of the new charts on Radio One on Sunday evening, GALLUP will randomly choose two hundred or more from these six hundred shops, add up the score on their computers and with these figures base the chart.
 
 The reason why these six hundred shops are so lucky (even though it is a bind having to type in catalogue numbers all the time) is because they become the focal point of all the record companies' in-store promotion.
 The record companies will stop at nothing to get the punter to buy the initial quantities of any would-be chart-bound releases from one of these shops.
@@ -1970,7 +2023,8 @@ They spend their lives waiting for exam results that are published every Sunday.
 Then there are the midweeks on Thursdays and predictions on Fridays and on and on it goes.
 GALLUP provides the industry with midweek chart positions on Thursdays and predictions on Friday of what they think the charts will be like on Sunday.
 These are not published or broadcast for public consumption.
-It is they who get the chop when the whistle is blown and somebody shouts "Unfair marketing!". Yes, the record company gets fined but they loose their job - and it's back to selling spark plugs.
+It is they who get the chop when the whistle is blown and somebody shouts "Unfair marketing!".
+Yes, the record company gets fined but they loose their job - and it's back to selling spark plugs.
 
 Without such a team of men no record stands a chance of charting, no matter how much radio play or club action it's having.
 A distributor can only supply a demand, they don't go out there and sell, sell, sell.
@@ -1985,7 +2039,8 @@ They are a phenomena of the Thatcher years.
 They are there for you to use and they will welcome working with you once they hear your record.
 
 There are three heavy weight sales forces you should contact: Impulse, Bullet and Platinum.
-They have all had Number One's in 1988. Phone them up and see if you can get an appointment.
+They have all had Number One's in 1988.
+Phone them up and see if you can get an appointment.
 Send them each a white label.
 Go witn which ever one shows the most interest.
 We were in the lucky position of having all three wanting to work our record.
@@ -1999,7 +2054,8 @@ There is no other way around it.
 The great thing is they will all, when slightly pushed, let you do a deal where you don't have to pay until your money starts coming through from the distributors.
 
 You might be wondering, "Why do we have to pay these sales forces to sell our records?
-Why can't they just take a commission on the amount of records they sell?". When we said "sell, sell, sell" earlier, it is not that straight forward.
+Why can't they just take a commission on the amount of records they sell?".
+When we said "sell, sell, sell" earlier, it is not that straight forward.
 They are not out there really selling records, they are out there buying catalogue numbers going into computers, buying display space and rack visibility.
 They need tools.
 They need your help: they need free records to give away - thousands if you'll let them.
@@ -2205,7 +2261,8 @@ Get straight to the point: you need money to see this thing through properly.
 
 They will understand your situation and ask you to call back in the morning.
 You call back the next morning just after 10am.
-(This, by the way, is the only [probably] long distance call in the whole exercise that you need to make during peek rate with you having to pay for it). They agree to give it to you.
+(This, by the way, is the only [probably] long distance call in the whole exercise that you need to make during peek rate with you having to pay for it).
+They agree to give it to you.
 
 Call your bank manager.
 Tell him what is happening.
@@ -2240,7 +2297,8 @@ Videos are the disease of our time; adverts pretending to be art, made by arseho
 Of course, the lovers of kitch in the next century will adore them, social historians dissect them.
 Shoot the lot we say.
 
-Other than that, spend no more than ten thousand pounds (and don't forget the VAT). Don't make a prat of yourself and don't attempt a pastiche of some movie genre.
+Other than that, spend no more than ten thousand pounds (and don't forget the VAT).
+Don't make a prat of yourself and don't attempt a pastiche of some movie genre.
 
 For our video we were lucky.
 We had a mate who had a director's ticket.
@@ -2258,7 +2316,8 @@ Next.
 
 What's your angle?
 What's going to happen on Top of the Pops?
-What are you going to say on "Newsbeat"? What are you going to use for photos for Smash Hits?
+What are you going to say on "Newsbeat"?
+What are you going to use for photos for Smash Hits?
 
 Like the video you have left it all too late but there was nothing you could have done about that because it's only now that you have got the money.
 
@@ -2307,7 +2366,8 @@ That we were not playing the game according to the rules.
 We thought we were giving them what they wanted: something inane, breezy, with a bit of safe, silly sex thrown in.
 
 The Sun and The Mirror took this especially badly.
-They inferred we were not only insulting them as journalists if we thought they would do an interview with a car, we were also told that if they were to run such an interview they would loose their credibility with their readers, who in future would begin to doubt all their other pop piffle stories about "Bananarama Girl Splits With Sting" and "Sultry Sade in Secret Affair With Bonking Mad Cliff". Instead, they tried to expose us, the men behind the record.
+They inferred we were not only insulting them as journalists if we thought they would do an interview with a car, we were also told that if they were to run such an interview they would loose their credibility with their readers, who in future would begin to doubt all their other pop piffle stories about "Bananarama Girl Splits With Sting" and "Sultry Sade in Secret Affair With Bonking Mad Cliff".
+Instead, they tried to expose us, the men behind the record.
 "Who wants to read about reality?"
 we thought.
 "Bill Drummond.
@@ -2332,7 +2392,8 @@ It was after that we came up with our car idea.
 We then wanted to smash the car into Stone Henge or have a helicopter place it on two of the vertical stones whose horizontal was missing.
 We thought of dragging it to the top of Silbury Hill, digging a hole and tipping the car in, nose first, with about four feet stuck in the ground and the rest stuck in the air, so that it looked like we had just arrived from outer space.
 
-One of us is sort of related to one of the lesbians that absailed into the House of Commons in early '88. They advised us against digging a hole in Silbury Hill as it is sort of special to them.
+One of us is sort of related to one of the lesbians that absailed into the House of Commons in early '88.
+They advised us against digging a hole in Silbury Hill as it is sort of special to them.
 This gang of anarchic lesbians said they would help us break into Stone Henge one night, paint all the stones black and white, knock a few over and remind the world about evolution.
 The girls were angry about something and we were not, so they went off and broke into News At Ten.
 Us, being boys, went off and made Daleks in true Blue Peter style.
@@ -2363,7 +2424,8 @@ Days.
 Midweeks and predictions.
 Fall, spin, turn and dive.
 Sign cheques.
-Solicitor doing deals with "Hits" and "Now". Sleep at night.
+Solicitor doing deals with "Hits" and "Now".
+Sleep at night.
 Black to white.
 Highest new entry.
 Good to bad.
@@ -2429,7 +2491,8 @@ We would never be allowed to get away with it a second time.
 I am sure there are dozens more handy hints we could give you.
 You will have to give them to yourself instead.
 It's all obvious stuff.
-"Public Enemy" bring out a record called "Don't Believe The Hype". A white U.K. rock journalist tells us they are the greatest rock band in the world.
+"Public Enemy" bring out a record called "Don't Believe The Hype".
+A white U.K. rock journalist tells us they are the greatest rock band in the world.
 A lad on the tube is wearing a Public Enemy bomber jacket and Def Jam baseball cap.
 Must have cost him twenty quid.
 How deep does the irony have to go before we all drown?
