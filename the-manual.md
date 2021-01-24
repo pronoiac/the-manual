@@ -26,20 +26,20 @@ A.K.A. THE FALL
 A.K.A. THE FOREVER ANCIENTS LIBERATION LOOPHOLE
 
 KLF PUBLICATIONS, BOX 283, HP22 5BW
-KLF PUBLICATIONS IS A KLF COMMUNlCATIONS COMPANY
+KLF PUBLICATIONS IS A KLF COMMUNICATIONS COMPANY
 KLF COMMUNICATIONS 1988
-FIRST PUBUSHED 1988
+FIRST PUBLISHED 1988
 
 ALL RIGHTS RESERVED.
 NO PART OF THIS PUBLICATION MAY BE REPRODUCED, STORED IN A RETRIEVAL SYSTEM OR TRANSMITTED IN ANY FORM OR BY ANY MEANS ELECTRONIC, MECHANICAL, PHOTOCOPYING, RECORDING OR OTHERWISE WITHOUT THE PRIOR CONSENT OF KLF PUBLICATIONS.
 
-THIS BOOK IS SOLD SUBJECT TO THE CONDITION THAT IT SHALL NOT BY WAY OF TRADE OR OTHERWISE BE LENT, RESOLD, HIRED OUT OR OTHERWISE CIRCULATED WITHOUT THE PUBLISHER'S PRIOR CONSENT IN ANY FORM OF BINDING OR COVER OTHER THAN THAT IN WHICH IT lS PUBLISHED AND WITHOUT A SIMILAR CONDITION INCLUDING THIS CONDITION BEING IMPOSED IN THE SUBSEOUENT PUBLISHER.
+THIS BOOK IS SOLD SUBJECT TO THE CONDITION THAT IT SHALL NOT BY WAY OF TRADE OR OTHERWISE BE LENT, RESOLD, HIRED OUT OR OTHERWISE CIRCULATED WITHOUT THE PUBLISHER'S PRIOR CONSENT IN ANY FORM OF BINDING OR COVER OTHER THAN THAT IN WHICH IT IS PUBLISHED AND WITHOUT A SIMILAR CONDITION INCLUDING THIS CONDITION BEING IMPOSED IN THE SUBSEQUENT PUBLISHER.
 
 GUARANTEE - HOW TO OBTAIN IT
 
 WE GUARANTEE THAT WE WILL REFUND THE COMPLETE PRICE OF THIS MANUAL IF YOU ARE UNABLE TO ACHIEVE A NUMBER ONE SINGLE IN THE OFFICIAL (GALLUP) U.K. CHARTS WITHIN THREE MONTHS OF THE PURCHASE OF THIS MANUAL AND ON CONDITION THAT YOU HAVE FULFILLED OUR INSTRUCTIONS TO THE LETTER.
 TO RECEIVE THIS GUARANTEE PLEASE WRITE TO KLF PUBLICATIONS, BOX 283, HP21 7HG, U.K. WITH YOUR NAME, ADDRESS AND A PHOTOCOPY OF YOUR PURCHASE RECEIPT AND AN S.A.E.
-YOU WlLL RECEIVE YOUR GUARANTEE WITHIN 28 DAYS.
+YOU WILL RECEIVE YOUR GUARANTEE WITHIN 28 DAYS.
 
 
 THIS BOOK IS DEDICATED TO THE MEMORY OF DON LUCKNOW.
@@ -163,11 +163,11 @@ Spend the remainder of the morning amassing the rest of the tools you will need 
 These are:
 
 1. A record player (the crappier the better as long as it actually works).
-Mass appeal records can always transcend any apparatus they are played on; the exp ensive set up is only for judging coffee table records.
+Mass appeal records can always transcend any apparatus they are played on; the expensive set up is only for judging coffee table records.
 
 2. Copies of the latest in the series of "Now That's What I Call Music" and "Hits" LPs.
 
-3. A couple of the most recent dance compilation LPs ("The Techno Sounds of Dagenham Volume Vl", etc.).
+3. A couple of the most recent dance compilation LPs ("The Techno Sounds of Dagenham Volume VI", etc.).
 
 4. All the 7" singles in your house that ever made the Top 5.
 (If there are any other records you want to add to the pile make sure there is a very good reason why they should be there and make sure they were never released as indie records or had any punky associations.)
@@ -252,13 +252,13 @@ These owners are usually very enthusiastic and encouraging types who have a long
 Unfortunately for them, this is usually not the case and they will have to spend the rest of their lives seriously in debt.
 
 The studio owner will often have a very realistic and pragmatic view of the musical business.
-He will have been through the mill, r idden the rough ride, seen spotty oiks come into his studio hardly able to roll their own and, within what seems a matter of months, become internationally reknowned and respected musicians whose opinions are eagerly sought on anything from the destruction of the Amazon Rain Forests to the continued subsidy of the local bus service, whilst developing an unhealthy appetite for cocaine.
+He will have been through the mill, ridden the rough ride, seen spotty oiks come into his studio hardly able to roll their own and, within what seems a matter of months, become internationally renowned and respected musicians whose opinions are eagerly sought on anything from the destruction of the Amazon Rain Forests to the continued subsidy of the local bus service, whilst developing an unhealthy appetite for cocaine.
 
 A fact that is continually on the studio owner's mind is that there are far more studios flogging studio time than there are clients willing to pay for it.
 This creates a desperate competition between studios to encourage YOU the client to use them.
 One outcome of this competition is for the studios to continually get themselves as far into hock as their banks will let them go, enabling them to invest in the latest recording studio hardware.
 This hardware they hope will act as the bait to get YOU the client to book the studio.
-It also fulfils a secondary role, that of keeping the studio's eager, young, upwardly mobile engineer loyal to the studio and prevent him defecting to a better equipped rival.
+It also fulfills a secondary role, that of keeping the studio's eager, young, upwardly mobile engineer loyal to the studio and prevent him defecting to a better equipped rival.
 We will go further into the intriguing subject of the recording studio engineer later on in this book.
 
 THE STUDIO MANAGER
@@ -382,7 +382,7 @@ First checking to see they have the facilities you require, the studio will then
 Hold firm.
 You have got to have five clear consecutive days and you want to start the following Monday with their best in-house engineer.
 If they have not got, or are unable to shift any of their other clients to fit you in, tell them you will have to look elsewhere.
-They will be getting nervous now, as they might be just about to lose anything from &pound;1,000 to &pound;100,000 worth or business.
+They will be getting nervous now, as they might be just about to lose anything from &pound;1,000 to &pound;100,000 worth of business.
 So, when he says they do have the five consecutive days but not starting until the tenth (or whatever date they quote) tell him to pencil it in ("pencil" means provisionally booked) and you will get back to him in a couple of days to let him know either way.
 It might be worth having a bit of a chat with him about what other clients they have had in lately.
 Ask if they have had any hits come out of the studio, that sort of thing.
@@ -491,7 +491,7 @@ Banks will go to extremes thinking up new and ingenious ways of getting us to bo
 First and foremost they want us to get into property: "Buy a house," because with your property as security they can always lend you more and more money.
 If things were to go badly wrong and you weren't able to keep up the interest payments they can always force you out of house and home and get their money back that way.
 
-Of course, it would be bad for the banks if they were seen to be throwing too many families onto the street or forcing business' to the wall in order to redeem their loans.
+Of course, it would be bad for the banks if they were seen to be throwing too many families onto the street or forcing businesses to the wall in order to redeem their loans.
 They would always prefer to lend more money so as to help pay off the interest on the earlier loans.
 Banks have spent millions over the past few years trying to destroy the public's old impression of the bank manager in bowler, brolly and pinstripe, to the approachable and amiable sort of chap who will attempt at all times to say "Yes!".
 They have only done this, not because they like being nicer, but to seduce you into coming in and borrowing more money.
@@ -511,7 +511,7 @@ As we said in the introductory chapter having no money sharpens the wits.
 Forces you never to make the wrong decision.
 There is no safety net to catch you when you fall.
 
-If you already have an account with a bank make the appointment with the manger or his assistant.
+If you already have an account with a bank make the appointment with the manager or his assistant.
 If not, get into any branch (the nearest to where you live will do as long as it's one of the big five).
 Open a current account and make that appointment.
 Do this on Monday afternoon while you're out and about.
@@ -571,7 +571,7 @@ They have also proved rich hunting grounds for the major record companies lookin
 
 The indie record companies were cottage industries fuelled by enthusiasm, passion and belief.
 Some grew, became strong and established international links, whilst others withered and died.
-The strong ones were able to provide plafforms for the artists who were able to build up large and loyal followings to develop and prosper, even have moderate hit single success.
+The strong ones were able to provide platforms for the artists who were able to build up large and loyal followings to develop and prosper, even have moderate hit single success.
 The Smiths and New Order on Rough Trade and Factory respectively were the obvious champions in this.
 
 It was always understood that it was only the major record companies that had the infrastructure, the money, the efficiency, the might, the power and the means of persuasion to take singles all the way to THE TOP.
@@ -601,11 +601,11 @@ From now on, whether or not the technology makes the traditional musician's craf
 The manipulation of this control will become a very important creative form of expression in itself.
 
 Of course there is a place for the major record company in the future as there is still a place for brass bands, large national orchestras and Andrew Lloyd Webber musicals.
-The precise function the major record companies will play in the music business as we turn the corner into the 21 st century is something we are not going to bother guessing at.
+The precise function the major record companies will play in the music business as we turn the corner into the 21st century is something we are not going to bother guessing at.
 One thing they and we suppose all major international companies are good at is moving the goal posts; probably because they owned them in the first place.
 
 As more and more creators of music begin to realise that it is possible to make records themselves and steer those records in whatever direction they want, at the same time as retaining all the copyright in the product thus a bigger chunk of the action, the attractiveness of signing your soul and its products away from now to eternity (well at least fifty years after the day you die) will become to look rather silly.
-Nothing to do with ideology, just straight forward business sense.
+Nothing to do with ideology, just straightforward business sense.
 
 Twenty five years ago no unknown artist signing to a major record company would dare demand the right to only record their own material.
 The success of the Beatles changed that.
@@ -652,7 +652,7 @@ Some have become emotionally or business wise embroiled with artists whose own a
 Lieber and Stoller could walk into a studio tomorrow and have a world wide Number One in three months if they were so motivated.
 
 The basic Golden Rules as far as they apply to writing a debut single that can go to Number One in the U.K. Charts are as follows: Do not attempt the impossible by trying to work the whole thing out before you go into the studio.
-Working in a studio has to be a fluid and creative venture but at all times remember at the end of it you are going to have to have a 7" version that fulfils all the criteria perfectly.
+Working in a studio has to be a fluid and creative venture but at all times remember at the end of it you are going to have to have a 7" version that fulfills all the criteria perfectly.
 Do not try and sit down and write a complete song.
 Songs that have been written in such a way and reached Number One can only be done by the true song writing genius and be delivered by artists with such forceful convincing passion that the world HAS TO listen.
 You know the sort of thing, "Sailing" by Rod Stewart, "Without You" by Nilsson What the Golden Rules can provide you with is a framework that you can slot the component parts into.
@@ -694,7 +694,7 @@ What we are basically saying is, if you have anything in you, anything unique, w
 Creators of music who desperately search originality usually end up with music that has none because no room for their spirit has been left to get through.
 The complete history of the blues is based on one chord structure, hundreds of thousands of songs using the same three basic chords in the same pattern.
 Through this seemingly rigid formula has come some of the twentieth century's greatest music.
-In our case we used parts from thrcc very famous songs, Gary Glitter's "Rock 'n' Roll", "The Doctor Who Theme" and the Sweet's "Blockbuster" and pasted them together, neither of us playing a note on the record.
+In our case we used parts from three very famous songs, Gary Glitter's "Rock 'n' Roll", "The Doctor Who Theme" and the Sweet's "Blockbuster" and pasted them together, neither of us playing a note on the record.
 We know that the finished record contains as much of us in it as if we had spent three months locked away somewhere trying to create our master-work.
 The people who bought the record and who probably do not give a blot about the inner souls of Rockman Rock or King Boy D knew they were getting a record of supreme originality.
 
@@ -931,7 +931,7 @@ You must be worrying by now how you, or if not you, who on earth is going to fro
 If you already think you are a great singer and a well happening front person, then we have a problem.
 It means you will have the sort of ego that will render it totally impossible for you to be objective about everything else that has got to be done.
 Singers have historically made the worst producers of their own work.
-The reason for this is simply that singers have to become so emotionally involved in their performance it cancels out any sort of over view.
+The reason for this is simply that singers have to become so emotionally involved in their performance it cancels out any sort of overview.
 At the very least they need a musical partner that can give them some direction.
 If a singer was able to have this calculated view of their own work the end product would undoubtedly come over as cold and empty.
 
@@ -971,9 +971,9 @@ That cuts out having to pay proper session singers.
 Nobody would dare ask to be paid for having a laugh, acting the lad - buy them a pint and they will be well happy.
 
 Singers - good or bad - are invariably a problem.
-They not only make incredibly bad time keepers which can lead to disasterous consequences when you are facing a jam-packed schedule during the period when your record has entered the Top 30 but not yet made Number One, they also tend to confuse their role as singer of songs with that of would-be world leaders.
+They not only make incredibly bad time keepers which can lead to disastrous consequences when you are facing a jam-packed schedule during the period when your record has entered the Top 30 but not yet made Number One, they also tend to confuse their role as singer of songs with that of would-be world leaders.
 
-For the majority of people the sound of the vocals and the words that are being sung throughout the verses just merge into the over all sound of the track.
+For the majority of people the sound of the vocals and the words that are being sung throughout the verses just merge into the overall sound of the track.
 The words that are being sung could be any old gibberish, only the words to the chorus have any real importance.
 Of course there are the exceptions when the classic narrative song breaks through and storms the Number One slot These can never be planned and I'm sure the performers of these freak hits are as surprised as anybody when it happens.
 So unless you want to risk everything on some bizarre tale you have to tell, stick with us.
@@ -981,7 +981,7 @@ So unless you want to risk everything on some bizarre tale you have to tell, sti
 When it comes to TV. performances singers make obvious focal points for the cameraman thus the viewers at home are forced to watch.
 This is not because what is coming out of their mouths is of any great importance, it is just the easy option tradition of the medium.
 In fact most singers on Top of the Pops make complete prats of themselves.
-The viewers at home amuse themselves discussing this pratishness, either the size of the singer's nose, his taste in shirts, the dickhead state of his haircut or their shagable qualities.
+The viewers at home amuse themselves discussing this prattishness, either the size of the singer's nose, his taste in shirts, the dickhead state of his haircut or their shaggable qualities.
 This last example is usually done in such a disparaging and sexist way that it hardly inspires any real admiration.
 That said, you will need an act to go on TV. with.
 People will need some sort of human focal point to relate to.
@@ -1013,11 +1013,11 @@ Nobody, even if they do recognise it, will seriously accuse you of ripping someb
 
 Michael Jackson, who we cited earlier on for not being that adept at coming up with the killer Number One hit choruses, CAN come up with the bass lines.
 "Billy Jean" was the turning point in Jackson's career.
-That song, on his own admission, took him into the mega strataspheres where his myth now reigns.
+That song, on his own admission, took him into the mega stratospheres where his myth now reigns.
 The fact is, "Billy Jean" would be nothing without that lynx-on-the-prowl bass line; but he wasn't the first to use it.
 It had been featured in numerous dance tracks by various artists before him.
 Jackson and Quincy must have been hanging out around the pool table in their air conditioned dimmed light atmosphere, L.A. studio one evening wondering: "What next?"
-when one of them came up with the idea of using the old lynx- on-the-prowl standby.
+when one of them came up with the idea of using the old lynx-on-the-prowl standby.
 Without making that decision back in 1981 there would have been no Pepsi Cola sponsored jamboree in 1988.
 
 We are not trying to deny any of the very real talent that Jackson has, just trying to emphasise the possible importance of the killer bass line.
@@ -1059,12 +1059,11 @@ Just remember that if somebody else who is directly involved in the making of yo
 Not that giving away some of the action should deter you from using whatever is going to turn your recording into a Number one.
 
 THE BREAKDOWN SECTION
-
-Yet again you don't have to concern yourself with this at the pre- studio stage.
+Yet again you don't have to concern yourself with this at the pre-studio stage.
 Just account for its length in bars when you map out the structure of the song.
 Use the bass riff from the verse or some enticing variant on it that the programmer can come up with.
 
-When mixing, the engineer should strip the track right back and then start piling in with the studio wizardry and gimmicks before hammering into the final chorus'.
+When mixing, the engineer should strip the track right back and then start piling in with the studio wizardry and gimmicks before hammering into the final chorus.
 
 In years gone by this was the part of the song that would feature a solo.
 Nowadays, solos either get in the way or have to be fabulously stunning at the same time as being able to fit in with the studio sculpting that is going on around it.
@@ -1200,7 +1199,7 @@ A day's work in the studio cannot start without first having a cup of tea.
 On entering a recording studio for the first time you will naturally be impressed with all the gear.
 Do not be intimidated - it is all there ready to work for you.
 There will be thousands of dials, knobs and faders at the engineer's finger tips and he will know what every one of them does.
-This might over awe you but just remember he was most probably reading in Studio Wcekly, only moments before you walked in, about some new piece of studio hardware that's just come on the market and that every studio should now have, if if they are to stay in the race.
+This might over awe you but just remember he was most probably reading in Studio Weekly, only moments before you walked in, about some new piece of studio hardware that's just come on the market and that every studio should now have, if they are to stay in the race.
 That studio engineer is going to be worried that you will notice that they haven't already got it in this backwater of audio technology.
 
 The programmer should already have arrived and have his gear set up.
@@ -1237,7 +1236,7 @@ It is because of this that you will not come across any "job's worths".
 Quite the opposite; nothing will be too much trouble.
 
 Engineers are a rare breed.
-They all assume they are the greatest engincers in the world - or at least the greatest undiscovered engineers in the world - or at the very least, given the right gear to work with and a project like the next Sting or Peter Gabriel album, would soon become the greatest.
+They all assume they are the greatest engineers in the world - or at least the greatest undiscovered engineers in the world - or at the very least, given the right gear to work with and a project like the next Sting or Peter Gabriel album, would soon become the greatest.
 
 The plus side of this is he will work his guts out to prove this is the case.
 The down side is that since Sting started making records of the sound quality the engineer aspires to, he has stopped having U.K. Number One singles.
@@ -1251,7 +1250,7 @@ They can become very rich men.
 The great thing about them is they very rarely become openly arrogant; if one were to he would never get on.
 The years of making endless cups of tea for the client has knocked it out of him.
 Also the successful engineer knows he doesn't have to be arrogant.
-His craftmanship on the records he has worked on does all the talking.
+His craftsmanship on the records he has worked on does all the talking.
 Whereas the successful artist suffers from a continual paranoia that his bluff might be called and will be seen to be a fake.
 He needs his arrogance to hide behind.
 He will also convince himself that his public expects a certain amount of arrogance from him.
@@ -1259,7 +1258,7 @@ The trouble is, the suckers do.
 
 Your programmer can also become very successful; he will be able to demand a considerably higher rate once he has been associated with a hit or two.
 He will also have the opportunity of getting a cut in the publishing of the songs where his creative input has been above and beyond the call of a session fee.
-They seem to develop the uncanny knack of suggesting alternative or additional chord structures guaranteeing them, in law, their fare share of the publishing action.
+They seem to develop the uncanny knack of suggesting alternative or additional chord structures guaranteeing them, in law, their fair share of the publishing action.
 
 We would like to take this opportunity to tell you about the studio, the engineer and the programmer whom we use.
 
@@ -1274,7 +1273,7 @@ Is probably very funny.
 Will take down his trousers at the minimum of provocation.
 Has blonde highlights in his hair and has an earring in the wrong ear.
 Finds it impossible to talk to girls without at least proposing marriage.
-He is a vegetarian and a violent anti- smoker.
+He is a vegetarian and a violent anti-smoker.
 He drives second hand Jags and is always rereading a book about the Kray Twins.
 He plays drums in the Rubettes.
 
@@ -1369,7 +1368,7 @@ As always, you can get their telephone numbers from the Music Week directory.
 Have a chat with the people at the studio about it; see if they can make any introductions for you.
 Go out and put the kettle on, make some tea and go and see how they are getting on in the control room.
 Try not to spend too much of your time actually in the control room as you need to be able to hear things afresh every time you go in.
-If you get too sucked into the actual crafting of the sounds you will lose the vital objective over view of what is going on.
+If you get too sucked into the actual crafting of the sounds you will lose the vital objective overview of what is going on.
 
 Don't smoke any dope or drink more than two pints in any one day all week.
 If the engineer or programmer starts smoking dope or drinking you are in serious trouble and will have to have it stamped out immediately.
@@ -1553,7 +1552,7 @@ He will show you petty cash books with empty columns waiting for figures.
 His world will seem incredibly important to him.
 To you it will look meaningless and have little to do with the reality of people going into shops in their thousands to buy your record.
 If you are not willing to accept that his world IS important you could find yourself in five months time, after all the glory of having a Number One single has blown away down the gutter with the MacDonalds wrappers and squashed Diet Coke cans, left owing what seems like the whole world hundreds of thousands of pounds that you never saw in the first place.
-Judge neither the solicitor or the accountant by the cut of their suits or the decor of their offices and don't ne embarrassed by the framed photos of their families that they will have about the place.
+Judge neither the solicitor or the accountant by the cut of their suits or the decor of their offices and don't be embarrassed by the framed photos of their families that they will have about the place.
 
 Time to move on.
 
@@ -1602,7 +1601,7 @@ Use their phones and make an appointment to see him as soon as you can.
 
 Pluggers.
 They should be able to recommend at least one for you.
-Angela, who became our label manager at Rough Trade, recommended we talk to a strange American man called Scott Piering, who runs the ouffit "Appearing Music & Media Management".
+Angela, who became our label manager at Rough Trade, recommended we talk to a strange American man called Scott Piering, who runs the outfit "Appearing Music & Media Management".
 It might have been a mistake but we took him on.
 You must have a meeting with at least one plugger by the end of this week.
 
@@ -1674,7 +1673,7 @@ All this buying of favours (even when engineered very subtly) generates a self l
 The law of diminishing returns always rules.OB
 
 Being a plugger or a Radio One producer is a dangerous game to be in.
-It is one of the fastest ways of loosing contact with what ever finer qualities your soul might have had.
+It is one of the fastest ways of losing contact with what ever finer qualities your soul might have had.
 The sight of embarrassingly dressed, middle aged men racing around clutching seven inch pieces of plastic desperately trying to convince each other that they contain something of historical importance, something that the Great British public need to hear, can be very sad.
 
 Please.
@@ -1756,7 +1755,7 @@ Publicists want money as well.
 We paid Mick Houghton &pound;1,000 for doing our single.
 He will hate us saying this but he gets a lot less than the plugger because he had a lot less overheads and had to put in a lot less man hours.
 
-The tools of a publicist's trade are a telephone, a photocoping machine and a capacity to lie.
+The tools of a publicist's trade are a telephone, a photocopying machine and a capacity to lie.
 
 Friday.
 Take the weekend off and worry about all the wheels you have set in motion and all the invoices that will be winging their way to you over the next few weeks.
@@ -1811,7 +1810,7 @@ A good mixing engineer likes nothing better than to get lengths of tape stuck al
 The next day.
 Tuesday.
 The seven inch mix.
-The attitude to mixing the seven inch l1as to be a lot more controlled.
+The attitude to mixing the seven inch was to be a lot more controlled.
 We are afraid there is not the room for the wild creative gestures of the 12" mix, where the only constraints are that the physical and sexual elements of the track are left naked and the dancer should never be let free from the grip of the groove.
 
 The seven inch should very definitely be mixed using the small speakers in the studio.
@@ -1917,9 +1916,9 @@ Moral as a sodding peppermint???
 Obviously the word peppermint had some unusual connotation back in 1807 that has been lost down through the intervening years.
 
 Back in 1807, when peppermint was moral, there were no pluggers or sales forces helping to hype the week's hot new releases.
-You would be out there in the trenches knee-deep in death, scribbling whatever feeling you had left into some dog- eared notebook and we would be writing:
+You would be out there in the trenches knee-deep in death, scribbling whatever feeling you had left into some dog-eared notebook and we would be writing:
 
-"How To Become A Reknowned War Poet - The Easy Way"
+"How To Become A Renowned War Poet - The Easy Way"
 
 "Tommy this and Tommy that And Tommy feels no pain For it's over the top for Tommy Where Tommy takes the blame While Fritz the Hun feeds Fritz the cat And Kaiser sits on throne Then Fritz chats to Tommy boy About his Fraulein back at home"
 
@@ -2042,7 +2041,7 @@ There are three heavy weight sales forces you should contact: Impulse, Bullet an
 They have all had Number One's in 1988.
 Phone them up and see if you can get an appointment.
 Send them each a white label.
-Go witn which ever one shows the most interest.
+Go with which ever one shows the most interest.
 We were in the lucky position of having all three wanting to work our record.
 Each of them use different strategies, each offer different deals.
 They cost a lot of money.
@@ -2089,7 +2088,7 @@ Do you get the picture?
 
 Bonus or no bonus - that is the question.
 
-COUNT DOBOWN
+COUNT DOWN
 
 Release date is looming.
 The right clubs are playing your record.
@@ -2224,7 +2223,7 @@ Orders are beginning to come in.
 They were telling you this last week and the week before and they are telling it to you again.
 
 Call the plugger's office.
-he won't be there but his assistant will tell you they have already had five plays this week so far.
+He won't be there but his assistant will tell you they have already had five plays this week so far.
 It's going to be on "Singled Out" on Friday.
 They are expecting about ten to twelve plays by the end of the week.
 "It's going to be a big one!"
@@ -2249,7 +2248,7 @@ He won't like to hear this because you already owe him a thousand pounds that he
 He will ask you if you have asked for any sort of cash advance from the distributors yet.
 You answer no.
 He will advise you to do that.
-They are bound to let you have it, sceing as the record is all ready to explode.
+They are bound to let you have it, seeing as the record is all ready to explode.
 
 Call the distributors before they sod off home.
 They will know all about the radio play and the reaction from the sales force.
@@ -2349,7 +2348,7 @@ That cost one thousand pounds.
 Then we did a photo session with them.
 That was another one thousand pounds.
 
-The Escorts were like a latter day Pans People, whs: danced around Ford Timelord's more laid back cool and somewhat stationary performance.
+The Escorts were like a latter day Pans People, who danced around Ford Timelord's more laid back cool and somewhat stationary performance.
 They provided fast fun and frolicsome sexuality.
 Tongue firmly in cheek for all to see; pure Sunday Sport.
 
@@ -2392,7 +2391,7 @@ It was after that we came up with our car idea.
 We then wanted to smash the car into Stone Henge or have a helicopter place it on two of the vertical stones whose horizontal was missing.
 We thought of dragging it to the top of Silbury Hill, digging a hole and tipping the car in, nose first, with about four feet stuck in the ground and the rest stuck in the air, so that it looked like we had just arrived from outer space.
 
-One of us is sort of related to one of the lesbians that absailed into the House of Commons in early '88.
+One of us is sort of related to one of the lesbians that abseiled into the House of Commons in early '88.
 They advised us against digging a hole in Silbury Hill as it is sort of special to them.
 This gang of anarchic lesbians said they would help us break into Stone Henge one night, paint all the stones black and white, knock a few over and remind the world about evolution.
 The girls were angry about something and we were not, so they went off and broke into News At Ten.
