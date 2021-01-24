@@ -614,7 +614,7 @@ The success of the Beatles changed that.
 In the past ten years it has become the trend for the writer (of songs) to retain the copyright of their work and either just get the publishers to administrate it, or have their own accountants do the lot.
 
 If the rise of the UK indie label can be seen as a positive offspring of punk sensibilities, a very negative one was the cult of the very big advance.
-This can be traced back to the supposed situationalist shenanigans of Malcolm McClaren.
+This can be traced back to the supposed situationalist shenanigans of Malcolm McLaren.
 The idea that the major record companies were some how being ripped off and some clever scam was being pulled was totally false.
 There was no Great Rock 'n' Roll Swindle.
 The four living ex-members of the band have nothing left except fading memories of their glory days, like fuddled old soldiers; a front man trapped by his own cynicism and a corpse forever young.
@@ -657,7 +657,8 @@ The basic Golden Rules as far as they apply to writing a debut single that can g
 Working in a studio has to be a fluid and creative venture but at all times remember at the end of it you are going to have to have a 7" version that fulfills all the criteria perfectly.
 Do not try and sit down and write a complete song.
 Songs that have been written in such a way and reached Number One can only be done by the true song writing genius and be delivered by artists with such forceful convincing passion that the world HAS TO listen.
-You know the sort of thing, "Sailing" by Rod Stewart, "Without You" by Nilsson What the Golden Rules can provide you with is a framework that you can slot the component parts into.
+You know the sort of thing, "Sailing" by Rod Stewart, "Without You" by Nilsson.
+What the Golden Rules can provide you with is a framework that you can slot the component parts into.
 
 Firstly, it has to have a dance groove that will run all the way through the record and that the current 7" buying generation will find irresistible.
 Secondly, it must be no longer than three minutes and thirty seconds (just under 3'20 is preferable).
@@ -892,7 +893,7 @@ Then within the next twelve months to have written the chorus:
 
 "I should be so lucky Luck, lucky, lucky I should be so lucky in love"
 
-Out of context, as meaningless to lads as our own Doctor Who chorus was to girls but in those three lines there are for many more meaning than in the complete collected works of Morrisey.
+Out of context, as meaningless to lads as our own Doctor Who chorus was to girls but in those three lines there are for many more meaning than in the complete collected works of Morrissey.
 Stock Aitkin and Waterman are able to spot a phrase, not actually a catchphrase, but a line that the nation will know exactly what is been talked about and then use it perfectly:
 
 "Fun Love and Money" \
@@ -926,7 +927,7 @@ We are afraid you can't just go down to the local supermarket and listen to the 
 The line has to come to you and when it does you've got to grab it.
 Mindlessly singing along to the 12" groove track you have is the best way.
 
-Morrisey has undoubtedly come up with some of the wittiest titles of the decade.
+Morrissey has undoubtedly come up with some of the wittiest titles of the decade.
 "Shakespeare's Sister", "Girlfriend In A Coma" or "William It Was Really Nothing" are classic.
 However, with titles like these he will always be guaranteed a non Top Five placing.
 
@@ -1098,7 +1099,7 @@ The tried and tested guest soloists of the late eighties are: Miles Davis on tru
 Untried possibilities that might create some interest would be Jimmy Page or Junior Walker.
 But really we would recommend you don't bother - unless you can get Jimi Hendrix to do it.
 
-The last time the guest solo really helped on a Number One record was Stevie Wonder on Chakka Kahn's "I Feel For You".
+The last time the guest solo really helped on a Number One record was Stevie Wonder on Chaka Khan's "I Feel For You".
 In the end it only provides the D.J. on Radio One with a bit of a talking point or at best a clincher angle in getting a Newsbeat interview.
 
 When song writers were craftsmen that sat in front of their pianos, heads filled with melodies and hands searching for chords and long before multi-tracked recording studios became a vital aid in modern song construction, they would call this part of the song the "middle eight" (it had eight bars).
@@ -2413,12 +2414,12 @@ Always run the risk.
 We originally wanted the record fronted by real Daleks.
 We could not get permission.
 It was after that we came up with our car idea.
-We then wanted to smash the car into Stone Henge or have a helicopter place it on two of the vertical stones whose horizontal was missing.
+We then wanted to smash the car into Stonehenge or have a helicopter place it on two of the vertical stones whose horizontal was missing.
 We thought of dragging it to the top of Silbury Hill, digging a hole and tipping the car in, nose first, with about four feet stuck in the ground and the rest stuck in the air, so that it looked like we had just arrived from outer space.
 
 One of us is sort of related to one of the lesbians that abseiled into the House of Commons in early '88.
 They advised us against digging a hole in Silbury Hill as it is sort of special to them.
-This gang of anarchic lesbians said they would help us break into Stone Henge one night, paint all the stones black and white, knock a few over and remind the world about evolution.
+This gang of anarchic lesbians said they would help us break into Stonehenge one night, paint all the stones black and white, knock a few over and remind the world about evolution.
 The girls were angry about something and we were not, so they went off and broke into News At Ten.
 Us, being boys, went off and made Daleks in true Blue Peter style.
 As these Daleks were so far removed from the original designs they did not infringe any copyright laws.
@@ -2507,7 +2508,7 @@ Nothing ever resolves itself.
 You must know that by now.
 We just chose a cut off point.
 No point in us telling you how we attempted staying at Number One for a further week and failed or how Top of the Pops wouldn't let us go on with Gary Glitter the week we were at Number One.
-Or how we wanted to swap our Number One with Morrisey's "Everyday Is Like Sunday" and GALLUP wouldn't have it.
+Or how we wanted to swap our Number One with Morrissey's "Everyday Is Like Sunday" and GALLUP wouldn't have it.
 To quote the most heart shuddering moment in teenage pop, the closing line in "Past Present and Future" performed by the Shangri Las, written and produced by Shadow Morton, "It will never never happen again."
 If we do have Empiricals that line is it.
 We would never be allowed to get away with it a second time.
