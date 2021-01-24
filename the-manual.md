@@ -744,7 +744,7 @@ That means you will earn no publishing money on the record, however many it sell
 We will explain later the mysteries of publishing, but for now just take it from us that having a Number One with a cover, as opposed to your own song, is the equivalent of throwing away a minimum of &pound;10,000.
 
 There is no denying that in picking the right smash from the past and recording it well will result in a sure fire success.
-The producers of the day time shows at Radio One will have to only hear 30 the opening bars of your record to know that there will be a few slots in their shows for it; "the housewives at home and the husbands on the building site" will be singing along with it immediately.
+The producers of the day time shows at Radio One will have to only hear the opening bars of your record to know that there will be a few slots in their shows for it; "the housewives at home and the husbands on the building site" will be singing along with it immediately.
 It's not going to take them three or four listens before they decide whether they like the song.
 That decision was made long before you ever thought of having a Number One.
 As for the current 7" single buying generation who might have never heard the song before, they will automatically be given the chance to hear the record three or four times on the radio.
@@ -994,7 +994,8 @@ They not only make incredibly bad time keepers which can lead to disastrous cons
 
 For the majority of people the sound of the vocals and the words that are being sung throughout the verses just merge into the overall sound of the track.
 The words that are being sung could be any old gibberish, only the words to the chorus have any real importance.
-Of course there are the exceptions when the classic narrative song breaks through and storms the Number One slot These can never be planned and I'm sure the performers of these freak hits are as surprised as anybody when it happens.
+Of course there are the exceptions when the classic narrative song breaks through and storms the Number One slot.
+These can never be planned and I'm sure the performers of these freak hits are as surprised as anybody when it happens.
 So unless you want to risk everything on some bizarre tale you have to tell, stick with us.
 
 When it comes to TV. performances singers make obvious focal points for the cameraman thus the viewers at home are forced to watch.
@@ -1689,7 +1690,7 @@ Understand why he loathes the whole concept of pluggers, but at the same time fi
 The larger record companies are able to spend fortunes on producers picking up restaurant tabs, taking them horse riding, power boat racing, hang gliding, jet packing and getting involved in all other kinds of pranks and japes.
 All this buying of favours (even when engineered very subtly) generates a self loathing within the producer which will in turn find self expression in being redirected back at the plugger.
 
-The law of diminishing returns always rules.OB
+The law of diminishing returns always rules.
 
 Being a plugger or a Radio One producer is a dangerous game to be in.
 It is one of the fastest ways of losing contact with what ever finer qualities your soul might have had.
@@ -1957,7 +1958,7 @@ A few days later they will get some test pressings (T.P.'s) back.
 You have to listen to them and say: "That sounds O.K. by me."
 They can then go ahead pressing up the initial quantities.
 Check over the finished artwork before it is sent off to the printers.
-As with the T.P., a slick* (*SLEEVE PROOF) of the finished sleeve will be printed for you to pass judgement on before they go ahead with the rest of the run.
+As with the T.P., a slick (SLEEVE PROOF) of the finished sleeve will be printed for you to pass judgement on before they go ahead with the rest of the run.
 
 CLUB PROMOTION
 
