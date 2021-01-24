@@ -1,33 +1,35 @@
 THE TIMELORDS
 
-T H E
+
+T H E \
 M A N U A L
 
 (HOW TO HAVE A NUMBER ONE THE EASY WAY)
 
-THE JUSTIFIED ANCIENTS OF MU MU
-REVEAL THEIR ZENARCHISTIC METHOD USED
+THE JUSTIFIED ANCIENTS OF MU MU \
+REVEAL THEIR ZENARCHISTIC METHOD USED \
 IN MAKING THE UNTHINKABLE HAPPEN.
 
-KLF 009B
+
+KLF 009B \
 1988 (YOU KNOW WHAT'S GONE)
 
 ---
 
 TEXT BY:
 
-LORD ROCK AND TIME BOY
-A.K.A. THE TIMELORDS
-A.K.A. ROCKMAN ROCK AND KINGBOY D.
-A.K.A. THE JUSTIFIED ANCIENTS OF MU MU
-A.K.A. THE JAMS
-A.K.A. THE KLF
-A.K.A. THE FALL
+LORD ROCK AND TIME BOY \
+A.K.A. THE TIMELORDS \
+A.K.A. ROCKMAN ROCK AND KINGBOY D. \
+A.K.A. THE JUSTIFIED ANCIENTS OF MU MU \
+A.K.A. THE JAMS \
+A.K.A. THE KLF \
+A.K.A. THE FALL \
 A.K.A. THE FOREVER ANCIENTS LIBERATION LOOPHOLE
 
-KLF PUBLICATIONS, BOX 283, HP22 5BW
-KLF PUBLICATIONS IS A KLF COMMUNICATIONS COMPANY
-KLF COMMUNICATIONS 1988
+KLF PUBLICATIONS, BOX 283, HP22 5BW \
+KLF PUBLICATIONS IS A KLF COMMUNICATIONS COMPANY \
+KLF COMMUNICATIONS 1988 \
 FIRST PUBLISHED 1988
 
 ALL RIGHTS RESERVED.
@@ -705,7 +707,15 @@ The simplest thing to do would be to flick through your copy of the Guinness Boo
 Every year there is at least a couple of artists who get their debut Number One this way.
 From the eighties we have already had:
 
-Dave Stewart and Barbara Gaskin "It's My Party" Roxy Music "Jealous Guy" Soft Cell "Tainted Love" Paul Young "Wherever I Lay My Hat" Captain Sensible "Happy Talk" Neil "Hole In My Shoe" Tiffany "I Think We're Alone Now" Wet Wet Wet "With A Little Help" Yazz "The Only Way Is Up"
+Dave Stewart and Barbara Gaskin "It's My Party" \
+Roxy Music "Jealous Guy" \
+Soft Cell "Tainted Love" \
+Paul Young "Wherever I Lay My Hat" \
+Captain Sensible "Happy Talk" \
+Neil "Hole In My Shoe" \
+Tiffany "I Think We're Alone Now" \
+Wet Wet Wet "With A Little Help" \
+Yazz "The Only Way Is Up"
 
 There are, however, the negative facts in taking this route.
 Using an already proven song can give you a false sense of security when you are in the studio recording.
@@ -716,7 +726,11 @@ The all important radio producers hate nothing more than a classic song covered 
 The classic oldy, while fulfilling all the Golden Rules in pop, might have a lyrical content that may only ever relate to one period in pop history.
 There have been numerous past Number One's where this has been the case:
 
-Scott McKenzie "San Francisco" The Beach Boys "Good Vibrations" The Beatles "All You Need Is Love" Mott The Hoople "All The Young Dudes" MARRS "Pump Up the Volume"
+Scott McKenzie "San Francisco" \
+The Beach Boys "Good Vibrations" \
+The Beatles "All You Need Is Love" \
+Mott The Hoople "All The Young Dudes" \
+MARRS "Pump Up the Volume"
 
 Unless there is a revival of the zeitgeist of times past where the lyric in some way makes sense again, these songs should be stayed well clear of.
 
@@ -881,7 +895,12 @@ Then within the next twelve months to have written the chorus:
 Out of context, as meaningless to lads as our own Doctor Who chorus was to girls but in those three lines there are for many more meaning than in the complete collected works of Morrisey.
 Stock Aitkin and Waterman are able to spot a phrase, not actually a catchphrase, but a line that the nation will know exactly what is been talked about and then use it perfectly:
 
-"Fun Love and Money" "Showing Out" "Got To Be Certain" "Respectable" "Toy Boy" "Cross My Broken Heart"
+"Fun Love and Money" \
+"Showing Out" \
+"Got To Be Certain" \
+"Respectable" \
+"Toy Boy" \
+"Cross My Broken Heart"
 
 They are ridiculed by much of the media and only have their royalty statements for comfort.
 History will put them up there with Spectre and the boys.
@@ -1901,13 +1920,11 @@ We shall let it fall open.
 It's page two hundred and sixty five.
 MONEY TO MOTIONLESS and what do we read:
 
-Monotonous as the dress of charity children.
-(Anon).
-Moody as a poet.
-(Thomas Shadwell) Mope like birds that are changing feather.
-(Longfellow) I am as mopish as if I were married and lived in a provincial town.
-(G.H. Lewis) Moral as a peppermint.
-(Anon)
+Monotonous as the dress of charity children. (Anon). \
+Moody as a poet. (Thomas Shadwell) \
+Mope like birds that are changing feather. (Longfellow) \
+I am as mopish as if I were married and lived in a provincial town. (G.H. Lewis) \
+Moral as a peppermint. (Anon)
 
 Moral as a peppermint!
 Moral as a peppermint?
@@ -1920,7 +1937,14 @@ You would be out there in the trenches knee-deep in death, scribbling whatever f
 
 "How To Become A Renowned War Poet - The Easy Way"
 
-"Tommy this and Tommy that And Tommy feels no pain For it's over the top for Tommy Where Tommy takes the blame While Fritz the Hun feeds Fritz the cat And Kaiser sits on throne Then Fritz chats to Tommy boy About his Fraulein back at home"
+"Tommy this and Tommy that \
+And Tommy feels no pain \
+For it's over the top for Tommy \
+Where Tommy takes the blame \
+While Fritz the Hun feeds Fritz the cat \
+And Kaiser sits on throne \
+Then Fritz chats to Tommy boy \
+About his Fraulein back at home"
 
 That's the one that took us to The Top, up there with Owen and Service, Sassoon and Graves.
 
