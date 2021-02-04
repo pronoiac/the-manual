@@ -1000,7 +1000,7 @@ Of course there are the exceptions when the classic narrative song breaks throug
 These can never be planned and I'm sure the performers of these freak hits are as surprised as anybody when it happens.
 So unless you want to risk everything on some bizarre tale you have to tell, stick with us.
 
-When it comes to TV. performances singers make obvious focal points for the cameraman thus the viewers at home are forced to watch.
+When it comes to TV performances, singers make obvious focal points for the cameraman thus the viewers at home are forced to watch.
 This is not because what is coming out of their mouths is of any great importance, it is just the easy option tradition of the medium.
 In fact most singers on Top of the Pops make complete prats of themselves.
 The viewers at home amuse themselves discussing this prattishness, either the size of the singer's nose, his taste in shirts, the dickhead state of his haircut or their shaggable qualities.
