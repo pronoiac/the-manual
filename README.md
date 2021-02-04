@@ -12,4 +12,4 @@ I thought, "oh, that should be a quick fix."
 
 It took a bit more time than I expected, but I think it cleans up well:
 [The Manual](the-manual.md)
-![image](the-manual.jpg)
+![[The Manual](the-manual.md)](the-manual.jpg)
