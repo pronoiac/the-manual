@@ -52,7 +52,9 @@ WE WOULD LIKE TO THANK MARIE O'FLAHERTY FOR HER DEDICATION AND HARD WORK ABOVE A
 
 ----------------------------------------------------
 
-## "HOW TO HAVE A NUMBER ONE - THE EASY WAY"
+## THE BEGINNING
+
+HOW TO HAVE A NUMBER ONE - THE EASY WAY
 
 Be ready to ride the big dipper of the mixed metaphor.
 Be ready to dip your hands in the lucky bag of life, gather the storm clouds of fantasy and anoint your own genius.
@@ -241,9 +243,10 @@ There are wicked music moguls cynically manipulating the hearts and minds of you
 This is a worthless argument pursued by those unlucky ones who have never really been moved by the glories of pop music.
 They may as well have never been teenagers.
 
-### THE RECORDING STUDIO
+## THE RECORDING STUDIO
 
-DON'T BE TEMPTED TO SKIP THIS SECTION ON STUDIOS. IT MUST BE READ OVER LUNCH - BEFORE BOOKING YOUR STUDIO.
+DON'T BE TEMPTED TO SKIP THIS SECTION ON STUDIOS.
+IT MUST BE READ OVER LUNCH - BEFORE BOOKING YOUR STUDIO.
 
 The recording studio is the place where you will record your Number One hit single.
 There are hundreds of recording studios scattered across the country, from the north of Scotland to deepest Cornwall.
@@ -441,7 +444,7 @@ Nothing too long winded or desperately clever, but at the same time one that is 
 Don't try too hard, just let it float up.
 The other topic, MONEY, we have dedicated the next chapter to.
 
-### MONEY
+## MONEY
 
 Money is a very strange concept.
 There will be points in the forthcoming months when you might not have the change in your pockets to get the bus into town at the same time as you are talking to people on the telephone in terms of tens of thousands of pounds.
@@ -478,7 +481,7 @@ That is to be explained in one of our future manuals and if we were to tell you 
 
 We do not expect this chapter on money to have fulfilled in any direct, practical way in making the Number One slot but it might have helped dispel any illusions you might have had.
 
-### BANKS AND THEIR DIRECT AND PRACTICAL FUNCTIONS
+## BANKS AND THEIR DIRECT AND PRACTICAL FUNCTIONS
 
 Our age will be remembered in the future as a period in history when banks went to ridiculous and unparalleled lengths to compete with each other to win the allegiances of the young and account free.
 If future historians were to base their research on what young Britain was like in the late eighties solely on the substance of bank adverts, you would definitely be rated as the most despicable types since we were kicked out of the Garden.
@@ -632,7 +635,7 @@ Their seduction techniques threadbare and dated.
 The barn door cannot be closed.
 While the new technology might be the downfall of any kinds of standards in the world of television, in both printing and music the future is ours.
 
-### JUST AFTER 1 PM TUESDAY
+## JUST AFTER 1 PM TUESDAY
 
 Just after 1 pm Tuesday telephone the studio that you have booked and tell them you are going to need someone who can programme, ideally a programmer who can play the keyboards.
 Every studio can get one for you.
@@ -646,7 +649,7 @@ It will allay any doubts you might have in your talents as a hit song writer and
 Between now and next Monday morning you are going to have to come up with the goods.
 Those goods are out there waiting for you to find before the others get there.
 
-### THE GOLDEN RULES
+## THE GOLDEN RULES
 
 Leiber and Stoller, Goffin and King, Berry Gordy, Chinn and Chapman and Peter Waterman have all understood the Golden Rules thoroughly.
 The reason why Waterman will not continue churning out Number Ones from now until the end of the century and the others had only limited reigns, was not because lady luck's hand strayed elsewhere or that fashion moved on, it is because after you have had a run of success and your coffers are full, keeping strictly to the G.R.'s is boring.
@@ -668,7 +671,7 @@ Thirdly, it must consist of an intro, a verse, a chorus, second verse, a second 
 Fourthly, lyrics.
 You will need some, but not many.
 
-### CAUSALITY PLUS A PINCH OF MYSTICISM
+## CAUSALITY PLUS A PINCH OF MYSTICISM
 
 It is going to be a construction job, fitting bits together.
 You will have to find the Frankenstein in you to make it work.
@@ -755,7 +758,7 @@ If there is not a cover that takes your fancy the trick is to construct your son
 
 We obviously took the middle route in not doing a straight cover, but in doing the above so blatantly that we had to give away the majority of our publishing thus losing a sizeable chunk of the readies.
 
-### GROOVE
+## GROOVE
 
 The first of the component parts you are going to need to find is the irresistible dance floor groove.
 
@@ -794,7 +797,7 @@ Of course, in the clear light of day this is all very silly.
 At the time of writing it is the Summer of Love 1988 and we would seriously advise anybody in search of the Groove to spend the night at the ubiquitous acid house event, drink very little alcohol, loose your mind on the dance floor and shake your hands in the air 'till you feel it.
 Of course drugs are something we cannot be seen to advocate, but we understand that a certain very expensive narcotic makes this a lot clearer.
 
-### "Can you feel it?". Of course you do.
+"Can you feel it?" Of course you do.
 
 By the time you read this acid house will already be history but it is always easy to find out what's happening.
 There is an army of eager, young media types out there doing the research for you and writing it all up in any one of the competing youth-orientated journals.
@@ -843,7 +846,7 @@ They begin to believe if they are not continually going to clubs they will miss 
 The only thing that they do miss out on is themselves.
 Once in a club you have to leave your mind outside.
 
-### CHORUS AND TITLE
+## CHORUS AND TITLE
 
 The next thing you have got to have is a chorus.
 The chorus is the bit in the song that you can't help but sing along with.
@@ -946,7 +949,7 @@ Just remember there is a difference between bland cliche and cliche and only you
 
 So make sure you find a title that can be used as the opening line in your chorus and that the chorus is no longer than eight bars.
 
-### SINGING AND SINGERS (TO SING OR NOT TO SING)
+## SINGING AND SINGERS (TO SING OR NOT TO SING)
 
 You must be worrying by now how you, or if not you, who on earth is going to front this record!
 If you already think you are a great singer and a well happening front person, then we have a problem.
@@ -1017,7 +1020,7 @@ The type of devotion inspired amongst pubescent teenage girls for a certain sing
 The hype machine is usually only smelling the scent by the second single and can then only shift into top gear on the third one.
 The chapter's precis is the quality of a singer's voice and their attractiveness is only of any real importance in terms of a follow up career.
 
-### THE VERSE (THE BASS RIFF FACTOR)
+## THE VERSE (THE BASS RIFF FACTOR)
 
 So now you can tackle the construction of the verse without worrying about singers.
 
@@ -1058,7 +1061,7 @@ Even on "Billy Jean" they moved off the bass riff for the chorus.
 
 For the time being the only decision you are going to need to make about the verse is going to be making this decision on which bass riff is to be used with the other elements in the groove track.
 
-### THE INTRO
+## THE INTRO
 
 This is simple.
 The classic thing to do is have an instrumental version of the chorus.
@@ -1069,7 +1072,7 @@ They usually like to hear a bit of atmospherics - they tend to think it denotes 
 If he comes up with anything good, use it.
 This is a route that we originally took but at a later stage, on the advice of our radio plugger, we stuck a weirded out version of the chorus on the intro.
 
-### BRIDGES
+## BRIDGES
 
 Don't even think about them.
 They are for the more musically mature.
@@ -1080,7 +1083,7 @@ As always, if it's any good, use it.
 Just remember that if somebody else who is directly involved in the making of your record provides you with chords for a bridge he has every right to expect a cut in the publishing.
 Not that giving away some of the action should deter you from using whatever is going to turn your recording into a Number one.
 
-### THE BREAKDOWN SECTION
+## THE BREAKDOWN SECTION
 Yet again you don't have to concern yourself with this at the pre-studio stage.
 Just account for its length in bars when you map out the structure of the song.
 Use the bass riff from the verse or some enticing variant on it that the programmer can come up with.
@@ -1109,13 +1112,13 @@ This technique still has its charms but you can leave it to the people who take 
 Even Elton John doesn't bother with them these days.
 It's the sort of thing that Green from Scritti has a go at.
 
-### THE OUTRO
+## THE OUTRO
 
 Back when whole bands went into a studio to record their songs they would pride themselves in their tight, well rehearsed, snappy endings.
 Either you end on fading over repeated choruses or have a couple of choruses and sink back into the moody atmospherics that started the song.
 Yet again your mix engineer is going to come up with the answer for you.
 
-### HANGING BITS
+## HANGING BITS
 
 In some records there will be one or two bars stuck in between two of the sections where most of the music stops and a few bits are left hanging in the air before the whole track comes crashing back into the next section.
 We do not know if it has an official name but it serves the purpose of adding dramatic effect to the song.
@@ -1125,7 +1128,7 @@ That's it.
 There are no other parts that can possibly exist in Number One hit records.
 Relisten to your copies of "Now That's What I Call Music" or "Hits" and practice picking out the different sections, counting the bars as you go.
 
-### KEYS, NOTES AND CHORDS
+## KEYS, NOTES AND CHORDS
 
 There are twelve different Major keys and twelve different Minor keys.
 In each key there is a scale of eight notes, the eighth note being the same as the first but an octave above.
@@ -1142,7 +1145,7 @@ Zager and Evans in their staggering "In The Year 2525", a Number One in 1969, to
 This added to the stunning qualities of the record.
 Something that today's 7" single buyers could not handle.
 
-### FRIDAY MORNING
+## FRIDAY MORNING
 
 Friday morning.
 Phone the studio.
@@ -1194,7 +1197,7 @@ It will be these discoveries that you will be able to channel through the strict
 
 Without fantasy there would be nothing; man would have stayed up the trees, never ventured into the cave, Einstein would have foregone his relativity, Christ his ascension, Leonardo his Mona Lisa, Hitler his Third Reich and Betty Ford her clinic.
 
-### SUNDAY NIGHT
+## SUNDAY NIGHT
 
 Sunday night.
 Remember to listen to Bruno Brookes' Top 40 Show again.
@@ -1203,7 +1206,7 @@ Have a bath; it's the last chance you'll have of one until the end of the week.
 Remember to sing your chorus while you scrub your back.
 Sleep well.
 
-### FIVE DAYS IN A TWENTY FOUR TRACK STUDIO
+## FIVE DAYS IN A TWENTY-FOUR TRACK STUDIO
 
 Monday morning.
 There is no turning back now.
@@ -1352,7 +1355,7 @@ Not so much free of charge but on the understanding that if things begin to happ
 They don't want to miss out on what could be a future mega account earning their practice hundreds of thousands a year.
 It's a well acknowledged fact that every aspiring superstar needs legal representation before they earn a bean.
 
-### Manufacturing and distribution.
+Manufacturing and distribution.
 Without these two you will not have records made (finished product) or an organisation to get them out to the record counters across the land.
 There are a number of independent manufacturers of records in the south east.
 If you went directly to them they would want money you have not got up front before they do a thing.
@@ -1405,7 +1408,7 @@ What stuff you have got down is sounding like total crap.
 It's not just your paranoia that's telling you its crap.
 It is crap.
 
-### There is no way out and you will have to plough on.
+There is no way out and you will have to plough on.
 
 The cynic in you must, by now, be thinking, "What are these dick head Timelords on about?
 They haven't told us one concrete thing to do since we've been in the studio other than, 'Leave it to the engineer and programmer!'
@@ -1444,8 +1447,7 @@ Everybody's brain begins to work on half capacity even though at the time it is 
 You will just end up paying for a lot of studio time that was badly used.
 Obviously, this temptation might not arise if you are having to use public transport to get home.
 
-## Thursday morning.
-
+Thursday morning.
 Everybody at the studio will be becoming aware of the track's possibilities.
 Have a talk with them all about mixing on an SSL desk.
 If the studio complex you are using has not got SSL facilities they will tend to think they are not really necessary.
@@ -1509,7 +1511,7 @@ It might not be what he would like to hear from you, but will respect you all th
 Now that's sorted out, back into the studio.
 Backing singers, wild and weird samples, events you never planned, whole new directions, these sort of things will be happening now.
 
-## Friday.
+Friday.
 Daytime.
 This is your last chance to make whatever arrangements will have to be made for your week in London.
 Friday evening.
@@ -1521,7 +1523,7 @@ You will feel good.
 At home over the weekend you will play the track constantly.
 You will be beside yourself with confidence.
 
-### LONDON
+## LONDON
 
 Monday morning.
 A rain drenched hitch, an Intercity Saver, motorway mayhem with the added bonus of contraflow hold-ups.
@@ -1576,7 +1578,7 @@ To you it will look meaningless and have little to do with the reality of people
 If you are not willing to accept that his world IS important you could find yourself in five months time, after all the glory of having a Number One single has blown away down the gutter with the MacDonalds wrappers and squashed Diet Coke cans, left owing what seems like the whole world hundreds of thousands of pounds that you never saw in the first place.
 Judge neither the solicitor or the accountant by the cut of their suits or the decor of their offices and don't be embarrassed by the framed photos of their families that they will have about the place.
 
-### Time to move on.
+Time to move on.
 
 Other things to be done this week.
 Get your distribution and manufacturing sorted out.
@@ -1631,7 +1633,7 @@ Sales forces.
 Both tricky and very expensive but you won't have to talk to any until you have your track completed.
 We will tell you all about them later.
 
-### The same goes for club promotion.
+The same goes for club promotion.
 
 Who knows what difference a sleeve for a single makes?
 Go into a record shop, look at what the Top Twenty has for sleeves - pretty much of a nothing when you see them all in their racks.
@@ -1962,7 +1964,7 @@ They can then go ahead pressing up the initial quantities.
 Check over the finished artwork before it is sent off to the printers.
 As with the T.P., a slick (SLEEVE PROOF) of the finished sleeve will be printed for you to pass judgement on before they go ahead with the rest of the run.
 
-### CLUB PROMOTION
+## CLUB PROMOTION
 
 Club promotion.
 There are companies that specialise in mailing out records to clubs.
@@ -2004,7 +2006,7 @@ Keep using other people's telephones and don't take taxis.
 Don't stop thinking about videos, photo sessions and Top of the Pops performances.
 Hold hands with Heaven and take a tea break because things are beginning to get out of control again.
 
-### CHARTS
+## CHARTS
 
 Have we told you how our national charts are compiled yet?
 The ones that the BBC use.
@@ -2021,7 +2023,7 @@ The reason why these six hundred shops are so lucky (even though it is a bind ha
 The record companies will stop at nothing to get the punter to buy the initial quantities of any would-be chart-bound releases from one of these shops.
 It is for this very reason that fate has decreed that chart return shops have all the double packs, limited editions, gatefolds, twelve inch remixes, the shaped and picture discs, the CD singles and all the other loss leaders desperately trying to grab your attention from display boxes littered around counters and dangling from ceilings.
 
-### SALES FORCES
+## SALES FORCES
 
 Each sales force is made up of a team of a dozen or more salesmen who each have their chunk of the kingdom to cover.
 Within their territory they have to call on each chart return shop once a week.
@@ -2115,7 +2117,7 @@ Do you get the picture?
 
 Bonus or no bonus - that is the question.
 
-### COUNT DOWN
+## COUNTDOWN
 
 Release date is looming.
 The right clubs are playing your record.
@@ -2169,7 +2171,7 @@ One.
 Oh no!
 Here we go - ZERO!
 
-## Monday morning.
+Monday morning.
 Ten thirty and you are still in bed.
 There are record shops all over the country already open with your record in it.
 Is there anybody out there who has actually gone out and bought it?
@@ -2205,7 +2207,7 @@ It's your plugger asking if you heard it; he thought it sounded great.
 He tells you it has been scripted for the Gary Davis Show that afternoon.
 He tells you he had been trying to get you over the weekend to let you know that the record has been put on the C LIST.
 
-### PLAYLISTS
+## PLAYLISTS
 
 Radio One operates a playlist system.
 All the producers meet on a Monday, listen to the new releases and discuss which ones should go on or come off their playlist.
@@ -2237,7 +2239,7 @@ Don't try and read any significance into these meagre words.
 The reviewer will have forgotten what they said seconds after their hands finished typing it.
 You, however, may carry those words around with you in your head for the rest of your life - don't let that be a problem.
 
-## Wednesday.
+Wednesday.
 Late afternoon.
 Call the sales force.
 They should have a fair idea of how it's going by now.
@@ -2338,7 +2340,7 @@ Make decisions and get it done.
 Who knows?
 You might even enjoy it.
 
-### Next.
+Next.
 
 What's your angle?
 What's going to happen on Top of the Pops?
@@ -2409,7 +2411,7 @@ Save your money.
 
 Mind you, things tend to get completely out of control - so even if you learn from our mistakes you will create plenty of your own.
 
-### Always find the positive angle.
+Always find the positive angle.
 Always run the risk.
 
 We originally wanted the record fronted by real Daleks.
@@ -2467,12 +2469,14 @@ Give everything.
 Just give everything.
 This is the beautiful end.
 
-## Sunday evening.
+Sunday evening.
+
 Five minutes to seven.
 You are now at Number One.
 This is forever.
 It is now totally out of your hands.
 Your body still looks the same but everything inside it is a million miles apart.
+
 Sunday evening.
 Twenty past seven.
 Rockman opens another bottle of Champagne.
@@ -2502,7 +2506,7 @@ They said.
 To be honest (or at least an attempt at it) we think the reason we wrote this manual was to try and understand the whole process ourselves, make sense, unravel the mess of confusing strands.
 All the lies and logic, morals and myths and the difference between "yes" and "no".
 
-### Empiricals.
+Empiricals.
 Forget it.
 
 Nothing ever resolves itself.
