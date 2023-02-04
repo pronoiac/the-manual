@@ -1439,7 +1439,7 @@ Take it and shake it and cry when you hear it.
 
 "It's going to be a monster!"
 somebody will say.
-It could be you, but whoever said it, you know they are speaking the truth.
+It could be you, but whoever said it, you know they are sfing the truth.
 A week ago there was nothing: just you, the dole and the rent in the arrears - and now this.
 
 Don't work later than midnight, however well the track is going.
@@ -2262,7 +2262,7 @@ He does.
 
 "We gotta have a video.
 Look, this record could be huge.
-Without a video we're looking at a record that will peek at twenty eight - if we're lucky.
+Without a video we're looking at a record that will peak at twenty eight - if we're lucky.
 And have you sorted out what kind of performance you'll be doing for Top of the Pops?
 All the signs are this record could enter The Forty on Sunday.
 If the predictions on Friday confirm it I've got to tell the Pops' production meeting on Friday what your act is all about.
@@ -2289,7 +2289,7 @@ Get straight to the point: you need money to see this thing through properly.
 
 They will understand your situation and ask you to call back in the morning.
 You call back the next morning just after 10am.
-(This, by the way, is the only [probably] long distance call in the whole exercise that you need to make during peek rate with you having to pay for it).
+(This, by the way, is the only [probably] long distance call in the whole exercise that you need to make during peak rate with you having to pay for it).
 They agree to give it to you.
 
 Call your bank manager.
