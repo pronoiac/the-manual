@@ -1439,7 +1439,7 @@ Take it and shake it and cry when you hear it.
 
 "It's going to be a monster!"
 somebody will say.
-It could be you, but whoever said it, you know they are sfing the truth.
+It could be you, but whoever said it, you know they are speaking the truth.
 A week ago there was nothing: just you, the dole and the rent in the arrears - and now this.
 
 Don't work later than midnight, however well the track is going.
