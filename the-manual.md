@@ -185,7 +185,7 @@ This you will have to send off for.
 Address your envelope to: Sylvia Calver, Morgan Grampian Plc, Royal Sovereign House, 40 Beresford Street, London SE18 6BQ (telephone 01-854-2200) with a cheque or postal order for &pound;15.00.
 It will take about ten days to get to you.
 
-7. A hard back note book and a fine point, black ball Pentel.
+7. A hard back notebook and a fine point, black ball Pentel.
 
 If you do not already have any of the above, or are unable to borrow them, then we are afraid you are going to have to spend some real cash.
 Hopefully, this will be the last time in the whole project that you will have to use up some of your Giro, other than the odd bus fare and phone call.
@@ -264,7 +264,7 @@ A fact that is continually on the studio owner's mind is that there are far more
 This creates a desperate competition between studios to encourage YOU the client to use them.
 One outcome of this competition is for the studios to continually get themselves as far into hock as their banks will let them go, enabling them to invest in the latest recording studio hardware.
 This hardware they hope will act as the bait to get YOU the client to book the studio.
-It also fulfills a secondary role, that of keeping the studio's eager, young, upwardly mobile engineer loyal to the studio and prevent him defecting to a better equipped rival.
+It also fulfils a secondary role, that of keeping the studio's eager, young, upwardly mobile engineer loyal to the studio and prevent him defecting to a better equipped rival.
 We will go further into the intriguing subject of the recording studio engineer later on in this book.
 
 ### THE STUDIO MANAGER
@@ -365,7 +365,7 @@ You are going to need to book five consecutive days lock out in a manual operate
 Your local studios can be tracked down in the Yellow Pages under the "Recording Services/Sound" heading.
 It should be apparent from the way they list themselves whether they are twenty four track or not.
 If by chance there are none in your area, get straight down to the local reference library where they will have Yellow Pages covering the whole country.
-Check the neighbouring regions for studios and get some names down in your note book.
+Check the neighbouring regions for studios and get some names down in your notebook.
 If the studio you end up using is further than you can travel to on a daily basis, this will be no problem; all studios are only too willing to organise accommodation as part of the over all deal.
 
 Before you start dialling make a few notes:-
@@ -398,7 +398,7 @@ Then call the next studio on your list and repeat the process.
 Once you have got through your list of studios in your local(ish) area go and put the kettle on, take a leak and make yourself a cup of tea (coffee if you have to) as the next move you have to make has no simple ABC answer.
 
 Between you sipping this cup of tea and getting to Number One you are going to be involved with a lot of people along the way and from all these people you can learn a lot.
-Whether they are just a tea boy or an international super star you bump into down at TV. Centre while doing Top of the Pops, everybody involved in this music game has some sort of insight or angle on it all.
+Whether they are just a tea boy or an international super star you bump into down at TV Centre while doing Top of the Pops, everybody involved in this music game has some sort of insight or angle on it all.
 Listen to what they all have to say but take nothing as gospel; you are going to have to start building up your own picture of how it all moves.
 
 When you do meet people that have had some sort of success it will be natural for you to feel impressed and give a lot more credence to what they have to say, rather than to what the tea boy says.
@@ -406,7 +406,7 @@ Just remember that they in reality will have very little genuine idea of how the
 Under what might seem their confident exterior will be lurking a severe paranoia that they will be found out for what they are, a charlatan with a series of lucky breaks.
 With all these people you meet you must make them feel involved and that you respect their opinion and help.
 Everybody likes to feel part of a success and you must let them feel that.
-In doing this we are not trying to encourage you into becoming an obsequious slimey toad, but to make you aware that the enthusiasm and goodwill of all these people is vital to the success of your project.
+In doing this we are not trying to encourage you into becoming an obsequious slimy toad, but to make you aware that the enthusiasm and goodwill of all these people is vital to the success of your project.
 They deserve your respect.
 
 At times you will be told things, given advice that goes against the grain of the way you have already been thinking.
@@ -618,14 +618,14 @@ The success of the Beatles changed that.
 In the past ten years it has become the trend for the writer (of songs) to retain the copyright of their work and either just get the publishers to administrate it, or have their own accountants do the lot.
 
 If the rise of the UK indie label can be seen as a positive offspring of punk sensibilities, a very negative one was the cult of the very big advance.
-This can be traced back to the supposed situationalist shenanigans of Malcolm McLaren.
+This can be traced back to the supposed situationist shenanigans of Malcolm McLaren.
 The idea that the major record companies were some how being ripped off and some clever scam was being pulled was totally false.
 There was no Great Rock 'n' Roll Swindle.
 The four living ex-members of the band have nothing left except fading memories of their glory days, like fuddled old soldiers; a front man trapped by his own cynicism and a corpse forever young.
 While the record companies and publishers involved are still getting bigger and stronger and the employees are busy negotiating their next rise over the expense account lunch.
 It's as if Malcolm never understood Faust.
 
-Another point that we can throw in at this juncture is that down through the history of pop music the cult of the svengali figure has often risen.
+Another point that we can throw in at this juncture is that down through the history of pop music the cult of the Svengali figure has often risen.
 Svengalis might be very interesting characters but invariably make bad businessmen.
 They spend too much of their time cultivating their own image and coping with their own creative urges.
 We repeat, it has only been possible since the beginning of 1988 to single-handedly achieve what this manual is all about.
@@ -651,14 +651,14 @@ Those goods are out there waiting for you to find before the others get there.
 
 ## THE GOLDEN RULES
 
-Leiber and Stoller, Goffin and King, Berry Gordy, Chinn and Chapman and Peter Waterman have all understood the Golden Rules thoroughly.
+Leiber and Stoller, Goffin and King, Berry Gordy, Chinn and Chapman, and Peter Waterman have all understood the Golden Rules thoroughly.
 The reason why Waterman will not continue churning out Number Ones from now until the end of the century and the others had only limited reigns, was not because lady luck's hand strayed elsewhere or that fashion moved on, it is because after you have had a run of success and your coffers are full, keeping strictly to the G.R.'s is boring.
 It all becomes empty and meaningless.
 Some have become emotionally or business wise embroiled with artists whose own ambitions now lie elsewhere and far from merely having Number One's.
 Lieber and Stoller could walk into a studio tomorrow and have a world wide Number One in three months if they were so motivated.
 
 The basic Golden Rules as far as they apply to writing a debut single that can go to Number One in the U.K. Charts are as follows: Do not attempt the impossible by trying to work the whole thing out before you go into the studio.
-Working in a studio has to be a fluid and creative venture but at all times remember at the end of it you are going to have to have a 7" version that fulfills all the criteria perfectly.
+Working in a studio has to be a fluid and creative venture but at all times remember at the end of it you are going to have to have a 7" version that fulfils all the criteria perfectly.
 Do not try and sit down and write a complete song.
 Songs that have been written in such a way and reached Number One can only be done by the true song writing genius and be delivered by artists with such forceful convincing passion that the world HAS TO listen.
 You know the sort of thing, "Sailing" by Rod Stewart, "Without You" by Nilsson.
@@ -701,6 +701,7 @@ What we are basically saying is, if you have anything in you, anything unique, w
 Creators of music who desperately search originality usually end up with music that has none because no room for their spirit has been left to get through.
 The complete history of the blues is based on one chord structure, hundreds of thousands of songs using the same three basic chords in the same pattern.
 Through this seemingly rigid formula has come some of the twentieth century's greatest music.
+
 In our case we used parts from three very famous songs, Gary Glitter's "Rock 'n' Roll", "The Doctor Who Theme" and the Sweet's "Blockbuster" and pasted them together, neither of us playing a note on the record.
 We know that the finished record contains as much of us in it as if we had spent three months locked away somewhere trying to create our master-work.
 The people who bought the record and who probably do not give a blot about the inner souls of Rockman Rock or King Boy D knew they were getting a record of supreme originality.
@@ -850,7 +851,7 @@ Once in a club you have to leave your mind outside.
 
 The next thing you have got to have is a chorus.
 The chorus is the bit in the song that you can't help but sing along with.
-It is the most important element in a hit single because it is the part that most people carry around with them in their head, when there is no radio to be heard, no video on TV. and they are far from the dance floor.
+It is the most important element in a hit single because it is the part that most people carry around with them in their head, when there is no radio to be heard, no video on TV and they are far from the dance floor.
 It's the part that nags you while day dreaming in the classroom or at work or as you walk down the street to sign on.
 It's the part that finally convinces the punters to make that trip down to the record shop and buy it.
 So, slip on the 12" or your dance compilation and sing along with the breakdown sections; any old words will do, just whatever comes out of your mouth.
@@ -1003,14 +1004,14 @@ Of course there are the exceptions when the classic narrative song breaks throug
 These can never be planned and I'm sure the performers of these freak hits are as surprised as anybody when it happens.
 So unless you want to risk everything on some bizarre tale you have to tell, stick with us.
 
-When it comes to TV performances, singers make obvious focal points for the cameraman thus the viewers at home are forced to watch.
+When it comes to TV performances, singers make obvious focal points for the cameraman - thus the viewers at home are forced to watch.
 This is not because what is coming out of their mouths is of any great importance, it is just the easy option tradition of the medium.
 In fact most singers on Top of the Pops make complete prats of themselves.
 The viewers at home amuse themselves discussing this prattishness, either the size of the singer's nose, his taste in shirts, the dickhead state of his haircut or their shaggable qualities.
 This last example is usually done in such a disparaging and sexist way that it hardly inspires any real admiration.
-That said, you will need an act to go on TV. with.
+That said, you will need an act to go on TV with.
 People will need some sort of human focal point to relate to.
-When you get your three minutes of prime time TV. exposure you are going to have to grab the nation's attention in whatever way possible and at the same time keep the programme's director happy.
+When you get your three minutes of prime time TV exposure you are going to have to grab the nation's attention in whatever way possible and at the same time keep the programme's director happy.
 The first half of 1988 saw numerous D.J.s standing motionless behind their pair of Technics desperately holding onto their cool.
 Its novelty value soon wore off.
 
@@ -1018,7 +1019,7 @@ We will sort out the problem of getting a nation-grabbing act together in a late
 
 The type of devotion inspired amongst pubescent teenage girls for a certain singer or band takes effect on the second or third single.
 The hype machine is usually only smelling the scent by the second single and can then only shift into top gear on the third one.
-The chapter's precis is the quality of a singer's voice and their attractiveness is only of any real importance in terms of a follow up career.
+The chapter's pr&eacute;cis is the quality of a singer's voice and their attractiveness is only of any real importance in terms of a follow up career.
 
 ## THE VERSE (THE BASS RIFF FACTOR)
 
@@ -1047,7 +1048,7 @@ Without making that decision back in 1981 there would have been no Pepsi Cola sp
 
 We are not trying to deny any of the very real talent that Jackson has, just trying to emphasise the possible importance of the killer bass line.
 
-Serious groove merchants hate it when a song has a dynamite bass line for the verse and then when the chorus comes the chords change, dragging the bass away from its "bad self" into having to follow those limp wristed chords.
+Serious groove merchants hate it when a song has a dynamite bass line for the verse and then when the chorus comes the chords change, dragging the bass away from its "bad self" into having to follow those limp-wristed chords.
 For them the whole movement of the song is destroyed for the sake of some nursery rhyme element they would rather see dumped.
 
 Somehow these two important elements are going to have to be made to work together without the power of the chorus or the propulsion of verse bass riff being destroyed.
@@ -1126,7 +1127,7 @@ It is a bit sophisticated for ourselves but your programmer might recommend it -
 
 That's it.
 There are no other parts that can possibly exist in Number One hit records.
-Relisten to your copies of "Now That's What I Call Music" or "Hits" and practice picking out the different sections, counting the bars as you go.
+Re-listen to your copies of "Now That's What I Call Music" or "Hits" and practice picking out the different sections, counting the bars as you go.
 
 ## KEYS, NOTES AND CHORDS
 
@@ -1214,9 +1215,9 @@ If you did you would look like a complete wimp to your mates who although might 
 Not only that but you will face a cancellation fee from the studio, which will amount to at least half the full costs for the week's hire.
 
 Using your chosen mode of transport get there for about quarter to eleven.
-Don't forget to bring your records, Guinness Book, note book and black Pentel.
+Don't forget to bring your records, Guinness Book, notebook and black Pentel.
 
-Don't bring a brief case or a filofax, you would be in danger of looking like a minor league group manager.
+Don't bring a briefcase or a filofax, you would be in danger of looking like a minor league group manager.
 
 On arriving at the studio introduce yourself to the studio manager, find out where the kitchen is and put on the kettle.
 A day's work in the studio cannot start without first having a cup of tea.
@@ -1299,7 +1300,7 @@ Will take down his trousers at the minimum of provocation.
 Has blonde highlights in his hair and has an earring in the wrong ear.
 Finds it impossible to talk to girls without at least proposing marriage.
 He is a vegetarian and a violent anti-smoker.
-He drives second hand Jags and is always rereading a book about the Kray Twins.
+He drives second-hand Jags and is always rereading a book about the Kray Twins.
 He plays drums in the Rubettes.
 
 Our programmer, Nick Coler, is a genius.
@@ -1318,7 +1319,7 @@ Had a minor hit in the sixties with a band called Spectrum.
 Made a living out of producing Euro Disco.
 Has to talk to his bank manager a lot.
 Is very understanding when we haven't got the cash.
-Drives a second hand Jag and knows all the members of the Rubettes.
+Drives a second-hand Jag and knows all the members of the Rubettes.
 The other regular clients at The Village are Chris Barber and Freddie Starr.
 
 We would like to go on record as saying if you live "out East" and you want a smash, get down to The Village.
@@ -1815,7 +1816,7 @@ Spend the first day doing the twelve inch.
 Leave most of it to the engineer, throw in some ideas, play some records to him that give him some idea of where you think it should be going.
 Get back to boiling the kettle and brewing the tea.
 
-When he gets the drum tracks up and and has done some work on their sound it has to be the most mind numbing, danceable thing you have ever heard.
+When he gets the drum tracks up and has done some work on their sound it has to be the most mind numbing, danceable thing you have ever heard.
 These drums alone should sound like they could go on all night in a club and the floor would never be less than a writhing mess of flesh.
 
 Take risks.
@@ -1823,7 +1824,7 @@ Have him drop all sorts of things out and stick repeat echoes on everything.
 Don't stop the beat.
 Don't loose the beat.
 Don't mistreat the beat.
-If you have time to do a another mix that is radically different, do it.
+If you have time to do another mix that is radically different, do it.
 Don't be afraid to have next to nothing in it.
 Worship at the feet of the primeval goddess of Groove.
 
@@ -1857,7 +1858,7 @@ Sign on if you have to.
 Take a stroll down to the shops and get some provisions in.
 The day will be overcast and grey; probably a spot of rain.
 If there is a test match going on England will be doing moderately well.
-A minor tragedy will have happened somewhere in the world: Metro crash in Paris, a fairground disaster at the Tivali Gardens in Copenhagen, that sort of thing.
+A minor tragedy will have happened somewhere in the world: Metro crash in Paris, a fairground disaster at the Tivoli Gardens in Copenhagen, that sort of thing.
 
 It's time to play old records and reflect on the strangeness of life and wonder if that one-night-stand still remembers you.
 In the afternoon make some telephone calls.
@@ -1918,7 +1919,7 @@ People must have sweated for years to write some of these books and we can't be 
 
 We found a book this morning.
 "A Dictionary of Similes".
-Printed in 1807.
+Printed in 1917.
 Thought there might be something in it to spice up our writing style.
 Every page is a winner.
 We shall let it fall open.
@@ -1935,9 +1936,9 @@ Moral as a peppermint!
 Moral as a peppermint?
 Moral as a sodding peppermint???
 
-Obviously the word peppermint had some unusual connotation back in 1807 that has been lost down through the intervening years.
+Obviously the word peppermint had some unusual connotation back in 1917 that has been lost down through the intervening years.
 
-Back in 1807, when peppermint was moral, there were no pluggers or sales forces helping to hype the week's hot new releases.
+Back in 1917, when peppermint was moral, there were no pluggers or sales forces helping to hype the week's hot new releases.
 You would be out there in the trenches knee-deep in death, scribbling whatever feeling you had left into some dog-eared notebook and we would be writing:
 
 "How To Become A Renowned War Poet - The Easy Way"
@@ -2322,7 +2323,7 @@ They are leeches.
 Spending their lives trying to ingratiate themselves with anyone who they think might have a few grand to spend.
 
 Videos are the disease of our time; adverts pretending to be art, made by arseholes pretending to be artists.
-Of course, the lovers of kitch in the next century will adore them, social historians dissect them.
+Of course, the lovers of kitsch in the next century will adore them, social historians dissect them.
 Shoot the lot we say.
 
 Other than that, spend no more than ten thousand pounds (and don't forget the VAT).
@@ -2377,7 +2378,7 @@ That cost one thousand pounds.
 Then we did a photo session with them.
 That was another one thousand pounds.
 
-The Escorts were like a latter day Pans People, who danced around Ford Timelord's more laid back cool and somewhat stationary performance.
+The Escorts were like a latter day Pans People, who danced around Ford Timelord's more laid-back cool and somewhat stationary performance.
 They provided fast fun and frolicsome sexuality.
 Tongue firmly in cheek for all to see; pure Sunday Sport.
 
@@ -2387,7 +2388,7 @@ Top of the Pops said: "No way!
 If we want dancers on our show we'll provide them."
 
 It was some time around this point that we became aware of a resistance to our record and on the whole way we were promoting it.
-The tabloids, radio and pop TV. all smelt a rat.
+The tabloids, radio and pop TV all smelt a rat.
 They thought we were attempting to take the piss, that we were trying to hijack their media for our own ends.
 That we were not playing the game according to the rules.
 
@@ -2515,7 +2516,7 @@ We just chose a cut off point.
 No point in us telling you how we attempted staying at Number One for a further week and failed or how Top of the Pops wouldn't let us go on with Gary Glitter the week we were at Number One.
 Or how we wanted to swap our Number One with Morrissey's "Everyday Is Like Sunday" and GALLUP wouldn't have it.
 To quote the most heart shuddering moment in teenage pop, the closing line in "Past Present and Future" performed by the Shangri Las, written and produced by Shadow Morton, "It will never never happen again."
-If we do have Empiricals that line is it.
+If we do have empiricals that line is it.
 We would never be allowed to get away with it a second time.
 
 I am sure there are dozens more handy hints we could give you.
