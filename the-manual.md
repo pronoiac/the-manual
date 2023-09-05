@@ -859,7 +859,10 @@ If you have difficulty in forming a tune in your head or you feel a bit inhibite
 
 Take for example:
 
-"That's the way a-ha, a-ha I like it a-ha, a-ha That's the way a-ha, a-ha I like it a-ha, a-ha"
+> "That's the way a-ha, a-ha \
+I like it a-ha, a-ha \
+That's the way a-ha, a-ha \
+I like it a-ha, a-ha"
 
 by K.C. and the Sunshine Band.
 That one usually works and should get you going in the right direction but there are hundreds to choose from.
@@ -871,7 +874,11 @@ No records are bought in vast quantities because the lyrics are intellectually c
 In fact, the lyrics can be quite meaningless in a literal sense but still have a great emotional pull.
 An obvious example of this was the chorus of our own record:
 
-"Doctor Who, hey Doctor Who Doctor Who, in the Tardis Doctor Who, hey Doctor Who Doctor Who, Doc, Doctor Who Doctor Who, Doc, Doctor Who"
+> "Doctor Who, hey Doctor Who \
+Doctor Who, in the Tardis \
+Doctor Who, hey Doctor Who \
+Doctor Who, Doc, Doctor Who \
+Doctor Who, Doc, Doctor Who"
 
 Gibberish of course, but every lad in the country under a certain age related instinctively to what it was about.
 The ones slightly older needed a couple of pints inside them to clear away the mind debris left by the passing years before it made sense.
@@ -883,25 +890,28 @@ Their most successful records will kick into the chorus with a line which encaps
 This will obviously be used as the title.
 As soon as Rick Astley hit the first line of the chorus on his debut single it was all over - the Number One position was guaranteed:
 
-"I'm never going to give you up"
+> "I'm never going to give you up"
 
 It says it all.
 It's what every girl in the land whatever her age wants to hear her dream man tell her.
 Then to follow that line with:
 
-"I'm never gonna let you down I'm never going to fool around or upset you"
+> "I'm never gonna let you down \
+I'm never going to fool around or upset you"
 
 GENIUS.
 
 As soon as they had those lyrics written they must have known they could have taken out a block booking on the Number One slot.
 Then within the next twelve months to have written the chorus:
 
-"I should be so lucky Luck, lucky, lucky I should be so lucky in love"
+> "I should be so lucky \
+Luck, lucky, lucky \
+I should be so lucky in love"
 
 Out of context, as meaningless to lads as our own Doctor Who chorus was to girls but in those three lines there are for many more meaning than in the complete collected works of Morrissey.
 Stock Aitkin and Waterman are able to spot a phrase, not actually a catchphrase, but a line that the nation will know exactly what is been talked about and then use it perfectly:
 
-"Fun Love and Money" \
+> "Fun Love and Money" \
 "Showing Out" \
 "Got To Be Certain" \
 "Respectable" \
@@ -922,7 +932,8 @@ He has quite a bit to learn about the opening line of a chorus.
 We have just taken a coffee break from writing this lot and while in the cafe have come up with the ultimate Stock Aitkin and Waterman chorus never written.
 It's called "Live In Lover", either performed by Sinitta or ideally by a Dagenham blonde called Sharon:
 
-"Live in lover I want you to be My live in lover for eternity"
+> "Live in lover I want you to be \
+My live in lover for eternity"
 
 Either use it for yourselves or we will go and blow what last vestiges of credibility we have and do it ourselves.
 We can see it now: we'd call the act "Sharon Meets the KLF" and of course the b-side would have to be "Sharon Joins The JAMS".
@@ -1932,18 +1943,17 @@ Mope like birds that are changing feather. (Longfellow) \
 I am as mopish as if I were married and lived in a provincial town. (G.H. Lewis) \
 Moral as a peppermint. (Anon)
 
-Moral as a peppermint!
-Moral as a peppermint?
-Moral as a sodding peppermint???
-
+Moral as a peppermint! \
+Moral as a peppermint? \
+Moral as a sodding peppermint??? \
 Obviously the word peppermint had some unusual connotation back in 1917 that has been lost down through the intervening years.
 
 Back in 1917, when peppermint was moral, there were no pluggers or sales forces helping to hype the week's hot new releases.
 You would be out there in the trenches knee-deep in death, scribbling whatever feeling you had left into some dog-eared notebook and we would be writing:
 
-"How To Become A Renowned War Poet - The Easy Way"
+> "How To Become A Renowned War Poet - The Easy Way"
 
-"Tommy this and Tommy that \
+> "Tommy this and Tommy that \
 And Tommy feels no pain \
 For it's over the top for Tommy \
 Where Tommy takes the blame \
