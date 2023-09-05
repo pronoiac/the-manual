@@ -4,6 +4,8 @@
 > *The Manual (How to Have a Number One the Easy Way)* is a 1988 book by "The Timelords" (Jimmy Cauty and Bill Drummond), better known as The KLF.
 It is a step-by-step guide to achieving a No.1 single with no money or musical skills, and a case study of the duo's UK novelty pop No. 1 "Doctorin' the Tardis".
 
+[![Cover of The Manual](the-manual.jpg)](the-manual.md)
+
 In January 2021, The KLF resurfaced, reissuing their music on streaming services and Youtube.
 
 *The Manual* came up in the conversation around this, with someone noting that there were typos and OCR artifacts.
